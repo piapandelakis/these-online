@@ -156,7 +156,7 @@ HAGER : *C'est moi le* quarterback*. Toi, tu joues dans mon équipe. Pigé
 
 RICHARDS : *Non, tu as raison. J'y jouais pas. Je suis resté dans mon
 coin et j'ai étudié comme un bon petit nerd. Et quinze ans plus tard, je
-suis un des plus grands esprits du XXI^e^ siècle. Je suis fiancée à la
+suis un des plus grands esprits du XXI<sup>e</sup> siècle. Je suis fiancée à la
 fille la plus canon de la planète. Et le gros sportif qui jouait comme*
 quarterback *au lycée ? Eh bien il me demande mon aide. Et il ne va rien
 obtenir du tout à moins de faire ce que je lui dis.*
@@ -354,7 +354,7 @@ ___
 
 [^702]: BROWN Jeffrey A. Comic Book Masculinity. op. cit*.*, p. 28.
 
-[^703]: L'intégration des femmes dans des sphères précédemment réservées aux hommes, telle que nous l'avons décrite, s'effectue au tournant du XX^e^ siècle, mais résulte d'un mouvement amorcé à la moitié du XIX^e^ siècle : la Guerre de Sécession a participé à la redistribution des rôles (cf. MARSH Margaret. op. cit., p. 113). Il n'est pas donc pas surprenant que ce mouvement s'amplifie, ou se confirme après les Première et Seconde Guerres Mondiales. Dans les années cinquante, cette crise de la masculinité, et la féminisation qui la caractérise sera clairement exprimée et critiquée par des observateurs masculins (cf. BORDO Susan. op. cit*.*, p. 118.).
+[^703]: L'intégration des femmes dans des sphères précédemment réservées aux hommes, telle que nous l'avons décrite, s'effectue au tournant du XX<sup>e</sup> siècle, mais résulte d'un mouvement amorcé à la moitié du XIX<sup>e</sup> siècle : la Guerre de Sécession a participé à la redistribution des rôles (cf. MARSH Margaret. op. cit., p. 113). Il n'est pas donc pas surprenant que ce mouvement s'amplifie, ou se confirme après les Première et Seconde Guerres Mondiales. Dans les années cinquante, cette crise de la masculinité, et la féminisation qui la caractérise sera clairement exprimée et critiquée par des observateurs masculins (cf. BORDO Susan. op. cit*.*, p. 118.).
 
 [^704]: Gaylyn Studlar avance ainsi : "*la peur de perdre les fondements traditionnels de l'identité masculine, comme la validation du genre par le travail semble avoir agité une recherche identitaire angoissée et de nature multiple chez l'homme de classe moyenne, dans le contexte d'une Amérique de plus en plus bureaucrate, de plus en plus industrialisée, en un mot, de plus en plus féminisée*" ("*the fear of losing traditional masculine anchors of identity, such as the gender-role validation provided by work, seemed to spur a multifaceted, nervous search for middle-class male identity in an increasingly bureaucratized, industrialized, and, therefore, "feminized" America*"), in STUDLAR Gaylyn. op. cit., p. 25.
 
