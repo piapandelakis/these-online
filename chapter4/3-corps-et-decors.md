@@ -148,12 +148,12 @@ Superman sont à l'opposé des constructions humaines qui constituent leurs cit�
 
 ![fig. 134.1](https://photos-5.dropbox.com/t/2/AADwtn4R2sFAy7Fk4E2yHQZKANPRZH_v8hYAPY9id9vz8Q/12/38888477/png/32x32/1/_/1/2/99_repere_BATMANBEGINS_batcave.png/EJi00h0YpvsTIAIoAg/AqzkAGW43ZAaHS26-uyUv-ad2BLZIQusLGGmvSqnbPY?size=2048x1536&size_mode=3)
 
-######fig. 134.1 : Bruce Wayne découvre le lieu qu'il va transformer en Batcave dans Batman Begins.
+######fig. 134.1 : Bruce Wayne découvre le lieu qu'il va transformer en Batcave dans *Batman Begins*.
 
 ![fig. 134.2](https://photos-6.dropbox.com/t/2/AAAd-CqwOoRuERbhoX-gtDuSk4e0MJG-v4GiKALDrVahOg/12/38888477/png/32x32/1/_/1/2/99_repere_spman_026_revelation00.png/EJi00h0YpvsTIAIoAg/nLqCAqYNo2iJb2iofD0uHyDUEAXV_yjdNySMAuim7AY?size=2048x1536&size_mode=3)
 ![fig. 134.3](https://photos-5.dropbox.com/t/2/AAAS9ZP3KuKX3USig8Em0CmrlsporAVMIMCDrHrevecoVw/12/38888477/jpeg/32x32/1/_/1/2/99_repere_spman_026_revelation04.jpg/EJi00h0YpvsTIAIoAg/iIcOT0xhlhXT2NAVbK6XgjiSPa341WXQ544kws7HYBE?size=2048x1536&size_mode=3)
 
-######fig. 134.2 et fig. 134.3 : Superman visite la Forteresse de la Solitude tout juste sortie des eaux, et voit l'image de son père qui l'attend pour délivrer ses conseils (dans Superman).
+######fig. 134.2 et fig. 134.3 : Superman visite la Forteresse de la Solitude tout juste sortie des eaux, et voit l'image de son père qui l'attend pour délivrer ses conseils (dans *Superman*).
 
 Dans le cas de Batman, la cache fait écho au lieu du traumatisme, dans la mesure où l'obscurité protectrice remplace celle, inquiétante, qui a été le théâtre de la mort de ses parents. Revenons cependant à Spider-Man : lui ne possède pas de repère à proprement parler, si ce n'est l'appartement qu'occupe Peter Parker, qui doit accueillir simultanément Peter Parker et son identité super-héroïque. Le rapport de Spider-Man à la ville relève donc d'une intimité particulière : le super-héros prolonge la ville, s'y fond, mais aussi s'y cogne, s'y
 blesse (pensons aux nombreuses chutes sonores, quasi comiques elles aussi, du personnage dans les trois films de la série), s'y retrouve enfin, dès qu'il est mis en difficulté. Ainsi, après une soirée difficile (*Spider-Man II*) au cours de laquelle il est rejeté par Mary
