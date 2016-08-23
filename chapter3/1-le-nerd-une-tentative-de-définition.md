@@ -289,7 +289,7 @@ en tant que lieu, regagne une présence visuelle dans les récits de nerds. Elle
 ![fig. 90.5](https://photos-3.dropbox.com/t/2/AADDRa9HwXaWh-MGDEm7o60Sw2ECuTUGw3ji-BhJ-rQqWg/12/38888477/png/32x32/1/_/1/2/BANANAS_11.png/EJi00h0Y-vgTIAIoAg/c43tBxTevixMxYDt2i6J32wPyLxLDM4CQy-XSC-9Z0o?dl=0&size=2048x1536&size_mode=3)
 ![fig. 90.6](https://photos-2.dropbox.com/t/2/AAD0wYH0wS_MCdjJ4r8yaqg5FiQIzRQyd9LjL05M7TjBxg/12/38888477/png/32x32/1/_/1/2/BANANAS_12.png/EJi00h0Y-vgTIAIoAg/dHi4rIzsOTPUQvF31cBIcqvLZsHctv8l37w4Y3TYCXw?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 90 : Woody Allen tente d'allier travail de bureau et activité physique dans* Bananas*.*
+######fig. 90 : Woody Allen tente d'allier travail de bureau et activité physique dans* Bananas*.
 
 ![fig. 91.1](https://photos-3.dropbox.com/t/2/AAAWjy_kchqxL9zo3Uvf4BnWXHM6pIKyPeUr9M5GI4YDuw/12/38888477/png/32x32/1/_/1/2/NUTTY_lewis_gym_01.png/EJi00h0YgPkTIAIoAg/IvRUGwqzkikm3Y1o5qV8syyDymEya5lOTsT46ai2ofQ?dl=0&size=2048x1536&size_mode=3)
 ![fig. 91.2](https://photos-5.dropbox.com/t/2/AACIgGGod_aEtn4XcHdc4RErGaYAQSChJd2las9MdbnxkA/12/38888477/png/32x32/1/_/1/2/NUTTY_lewis_gym_02.png/EJi00h0YgPkTIAIoAg/48BJVzTTKIl2ERsYYneCu_16MPVjqr8DNH_-bCqTiKc?dl=0&size=2048x1536&size_mode=3)
@@ -298,14 +298,14 @@ en tant que lieu, regagne une présence visuelle dans les récits de nerds. Elle
 ![fig. 91.5](https://photos-6.dropbox.com/t/2/AAAauEMDZgafjXP-EGr8j6wn-hCuEDi6lOa2tLoCZpytoA/12/38888477/png/32x32/1/_/1/2/NUTTY_lewis_gym_07.png/EJi00h0YgPkTIAIoAg/cu8jAgor2e-WHJCESvI6G2i2C4yGm8TfN9VMOrzmjoc?dl=0&size=2048x1536&size_mode=3)
 ![fig. 91.6](https://photos-2.dropbox.com/t/2/AACJw_G6Wm0my-MtziVq5PrsTeGVKo0go4Etvi6lsxRnFQ/12/38888477/png/32x32/1/_/1/2/NUTTY_lewis_gym_08.png/EJi00h0YgPkTIAIoAg/qvPNfTUU_1d41Dw16c0SzVxt11AuH9nGQ2iaMTu181c?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 91 : Le professeur Kelp tente d'améliorer sa condition physique dans* The Nutty Professor*.*
+######fig. 91 : Le professeur Kelp tente d'améliorer sa condition physique dans* The Nutty Professor*.
 
 ![fig. 92.1](https://photos-3.dropbox.com/t/2/AABoKodDjAVGsjYi4a05JJ3ZcVKpDhZmZSo09-zU0_OJOQ/12/38888477/png/32x32/1/_/1/2/superman4-1.png/EJi00h0YjPkTIAIoAg/KIJSmOOMk7GT4q_Id2LQfedWHMUFBR7ZT9L_ICudCWY?dl=0&size=2048x1536&size_mode=3)
 ![fig. 92.2](https://photos-1.dropbox.com/t/2/AAA6n_aFiyQfd6a4BFuP-N3g-8Y3MSa6yc75AY5kSsBI9w/12/38888477/png/32x32/1/_/1/2/superman4-2.png/EJi00h0YjPkTIAIoAg/Jg6FGKflcgOjQfd_8NKuapiv4g3ZJ1L7-WkIRjYy8BY?dl=0&size=2048x1536&size_mode=3)
 ![fig. 92.3](https://photos-1.dropbox.com/t/2/AADf9f8dEKNUy2nyrmPo6pznXJIBXSQTLVZircDBECfG-Q/12/38888477/png/32x32/1/_/1/2/superman4-3.png/EJi00h0YjPkTIAIoAg/kAno4OBnzMhmVeTq3vL52GRrXSF0W4kuXmnkv7ir4hM?dl=0&size=2048x1536&size_mode=3)
 ![fig. 92.4](https://photos-4.dropbox.com/t/2/AAAZIdZvG84KdKzGIaKV_ufUWwEIM_5PQYa_DKPUMScraw/12/38888477/png/32x32/1/_/1/2/superman4-4.png/EJi00h0YjPkTIAIoAg/zIdoN1XnctfZPFfk1HXafRH4E5wH61BW_gis7DfiFyU?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 92 : Superman joue à paraître faible dans la peau de Clark Kent (*Superman IV*). Voir le détail de ces scènes dans les annexes.
+######fig. 92 : Superman joue à paraître faible dans la peau de Clark Kent (*Superman IV*). Voir le détail de ces scènes dans les [annexes](../annexes.md).
 
 La première incursion du professeur Kelp dans une salle de sport est très courte : il renonce d'emblée devant la taille herculéenne des sportifs qui peuplent le lieu. Rattrapé par un entraîneur, il décide de tenter sa chance (*fig. 91*). L'entraîneur, cependant, commence par lui faire remarquer qu'il doit enlever ses lunettes pour s'entraîner. Kelp se livre alors à une sorte de chorégraphie, une suite de gestes qui dissocient les lunettes du corps, tout en affirmant leur absolue nécessité. Il cherche spontanément à mettre ses lunettes dans la poche de sa chemise, mais le sweater qu'il porte en est démuni : les vêtements de sport eux-mêmes deviennent inadéquats quand le *schlemiel* (ou nerd, dans ce cadre, les termes devenant quasiment équivalents) les porte. L'entraîneur propose donc au professeur de mettre ses lunettes de côté, et celui-ci se retrouve seul, rendu quasiment aveugle par cette
 dépossession. Ses essais seront donc naturellement infructueux : il utilise les appareils d'une manière inepte, ou, malchanceux, ceux-ci se détraquent instantanément lorsqu'il les touche.
@@ -340,7 +340,7 @@ Un régime d'oppositions strictes caractérise encore les personnages : Klump, o
 ![fig. 93.2](https://photos-4.dropbox.com/t/2/AABraeNPO8V3piIIejuoHLNquzHdvrBjYz84S2YDT61laQ/12/38888477/png/32x32/1/_/1/2/76_KLUMP_02.png/EJi00h0Yj_kTIAIoAg/e553N9yBcNG6HCItbYgODe5osR-BB7gCDaW3J5-1lZ8?dl=0&size=2048x1536&size_mode=3)
 ![fig. 93.3](https://photos-4.dropbox.com/t/2/AACfIxlAaWtmW7qzka6EkKxjbUpemi2BJZ6r-eBFNonotg/12/38888477/png/32x32/1/_/1/2/76_KLUMP_04.png/EJi00h0Yj_kTIAIoAg/FOZjNhz9YTC_WZAUluFA5vfX4mGJVEDFwxRKr3bJ0a4?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 93 : Eddy Murphy dans* The Nutty Professor*, deux identités pour un corps cartoon.*
+######fig. 93 : Eddy Murphy dans* The Nutty Professor*, deux identités pour un corps cartoon.
 
 La transformation requiert davantage qu'un maquillage, ou un changement de posture : l'usage d'un costume ("*fat suit*") a visiblement été nécessaire. En changeant d'identité, Klump change aussi, et c'est original, de *volume*. Son corps semble donc se dégonfler, mais aussi se
 regonfler, à chaque fois qu'il passe d'un avatar à l'autre. Cette stratégie permet d'ailleurs de détourner quelques moments iconiques du cinéma, presque sur le mode de l'horreur : comme Hulk, Love déchire ses vêtements lorsque le corps originel, celui de Klump, se rappelle à lui et que la transformation s'amorce malgré sa volonté. L'image du vêtement déchiré, trop petit pour contenir le corps musclé, constitue une des icônes de l'héroïsme[^621] : ici, son sens est inversé puisque le corps est non seulement trop gros pour le vêtement, mais aussi au regard des normes sociales. Un autre point marquant du passage entre les deux corps se lit au niveau des mains. Alors que le corps de Love semble normal, ce sont elles qui les premières reprennent leur corpulence naturelle. Démesurées, ces mains pataudes, aux doigts hors échelle par rapport au reste du corps, rappellent les mains gantées, rondes à cause de leur schématisme, des personnages de *cartoon* (*fig. 93.3*). L'affinité n'est pas seulement visuelle : l'argument même du film, qui consiste à employer un même acteur pour jouer plus de sept personnages, tient de cette "*prolifération du même*[^622]" que Dick Tomasovic relève dans un épisode de Félix le Chat.
