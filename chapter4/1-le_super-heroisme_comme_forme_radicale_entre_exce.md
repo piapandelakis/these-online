@@ -354,8 +354,7 @@ ___
 
 [^782]: Cf. FEIFFER Jules. *The Great Comic Book Heroes*. 1965. p. 38.
 
-[^783]: "*Savoir "swiper"* est un art en soi*" ("*Good swiping is an art
-    in itself*"), ibid.
+[^783]: "*Savoir "swiper"* est un art en soi*" ("*Good swiping is an art in itself*"), ibid.
 
 [^784]: Il y a en réalité deux Batgirls : la première est la fille du commissaire Gordon, la seconde est la fille d'un assassin.
 
