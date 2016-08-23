@@ -527,116 +527,116 @@ http://www.lefigaro.fr/flash-actu/2012/02/24/97001-20120224FILWWW00305-un-pont-c
 **NUGENT Benjamin**. It's All Geek to Me \[ en ligne \]. Psychology Today. 1^er^ juillet 2008. Disponible sur : &lt;http://www.psychologytoday.com/articles/200807/field-guide-the-nerd-its-all-geek-me&gt;
 (consulté le 13.08.12)
 
-PERKOWITZ Sidney. *Hollywood Science. Movies, Science and the End of the World*. New York : Columbia University Press, 2007, 255 p.
+**PERKOWITZ Sidney**. *Hollywood Science. Movies, Science and the End of the World*. New York : Columbia University Press, 2007, 255 p.
 
-SILBERMAN Steve. The Geek Syndrome \[ en ligne \]. Wired. Décembre 2001. Disponible sur :
+**SILBERMAN Steve**. The Geek Syndrome \[ en ligne \]. Wired. Décembre 2001. Disponible sur :
 &lt;http://www.wired.com/wired/archive/9.12/aspergers.html?pg=6&topic=&topic\_set=&gt;
 (consulté le 21.04.09)
 
-TOCCI Jason. Geeks vs. Nerds \[ en ligne \] Geek Studies. 29 juin 2007. Disponible sur :
+**TOCCI Jason**. Geeks vs. Nerds \[ en ligne \] Geek Studies. 29 juin 2007. Disponible sur :
 &lt;http://www.geekstudies.org/2007/06/geeks-vs-nerds&gt; (consulté le
 17.08.12)
 
 -   *Schlemiel*
 
-AMIEL Vincent. Les fantômes de Woody Allen. *Positif*, février 1998, n°444, p. 17-18.
+**AMIEL Vincent**. Les fantômes de Woody Allen. *Positif*, février 1998, n°444, p. 17-18.
 
-BENAYOUN Robert. *Bonjour Monsieur Lewis. Journal Ouvert 1957-1980*. Paris : Seuil, 1989, 273 p. (Point Virgule)
+**BENAYOUN Robert**. *Bonjour Monsieur Lewis. Journal Ouvert 1957-1980*. Paris : Seuil, 1989, 273 p. (Point Virgule)
 
-BUCHBINDER David. Enter the Schlemiel: The Emergence of Inadequate or Incompetent Masculinities in Recent Film and Television. *Canadian Review of American Studies/ Revue Canadienne d'Etudes Américaines*, 2008, vol. 38, n°2, p. 227-245.
+**BUCHBINDER David**. Enter the Schlemiel: The Emergence of Inadequate or Incompetent Masculinities in Recent Film and Television. *Canadian Review of American Studies/ Revue Canadienne d'Etudes Américaines*, 2008, vol. 38, n°2, p. 227-245.
 
-BUKATMAN Scott. "Paralysis in Motion. Jerry Lewis's Life as a Man". In : HORTON Andrew S. (dir.). *Comedy, Cinema, Theory*. Berkeley, Los Angeles, Oxford : University of California Press, 1991, p. 188-205.
+**BUKATMAN Scott**. "Paralysis in Motion. Jerry Lewis's Life as a Man". In : HORTON Andrew S. (dir.). *Comedy, Cinema, Theory*. Berkeley, Los Angeles, Oxford : University of California Press, 1991, p. 188-205.
 
-DE CHAMISSO Adelbert. *L'homme qui perdu son ombre*. Paris : Joseph Albanel, 1869, 104 p.
+**DE CHAMISSO Adelbert**. *L'homme qui perdu son ombre*. Paris : Joseph Albanel, 1869, 104 p.
 
-DINER Hasia R. *In the Almost Promised Land. American Jews and Blacks,
+**DINER Hasia R**. *In the Almost Promised Land. American Jews and Blacks,
 1915-35*. Westport, Londres : Greenwood Press, 1977, 271 p.
 
 Exposition *De Superman au chat du rabbin*, Musée d'Art et d'Histoire du Judaïsme (Paris), Commissariat : Anne-Hélène Hoog, du 17 octobre 2007 au 28 janvier 2008.
 
-GROSS Terry. Will the Real Woody Allen Please Stand Up? National Public Radio \[ en ligne \]. Émission *Fresh Air from WHYY,* 15 juin 2009. Disponible sur
+**GROSS Terry**. Will the Real Woody Allen Please Stand Up? National Public Radio \[ en ligne \]. Émission *Fresh Air from WHYY,* 15 juin 2009. Disponible sur
 &lt;http://www.npr.org/templates/story/story.php?storyId=121986289&gt;
 (consulté le 22.01.2010)
 
-KRUTNICK Frank. Jerry Lewis: The Deformation of the Comic. *Film Quarterly*, automne 1994, vol.48, n°1, p. 12-26.
+**KRUTNICK Frank**. Jerry Lewis: The Deformation of the Comic. *Film Quarterly*, automne 1994, vol.48, n°1, p. 12-26.
 
-LEWIS Jerry. *Dr. Jerry et Mr. Lewis*. Paris : Stock, 1983, 256 p. (Traduction de l'américain par Françoise Mayneris)
+**LEWIS Jerry**. *Dr. Jerry et Mr. Lewis*. Paris : Stock, 1983, 256 p. (Traduction de l'américain par Françoise Mayneris)
 
-PERLMUTTER Ruth. "Woody Allen's *Zelig*. An American Jewish Parody". In : HORTON Andrew S. (dir.). *Comedy, Cinema, Theory*. Berkeley, Los Angeles, Oxford : University of California Press, 1991, p. 206-221.
+**PERLMUTTER Ruth**. "Woody Allen's *Zelig*. An American Jewish Parody". In : HORTON Andrew S. (dir.). *Comedy, Cinema, Theory*. Berkeley, Los Angeles, Oxford : University of California Press, 1991, p. 206-221.
 
-STAUB Michael E. Smart. *Shofar: An Interdisciplinary Journal of Jewish Studies*, été 2006, vol.24, n°4, p. 2-12.
+**STAUB Michael E**. Smart. *Shofar: An Interdisciplinary Journal of Jewish Studies*, été 2006, vol.24, n°4, p. 2-12.
 
-WISSE Ruth R. *The Schlemiel as Modern Hero*. Chicago, Londres : University of Chicago Press, 1971, 134 p.
+**WISSE Ruth R**. *The Schlemiel as Modern Hero*. Chicago, Londres : University of Chicago Press, 1971, 134 p.
 
 -   Autres figures notoires
 
 ### Losers 
 
-COMER Todd A. "This Agression Will Not Stand": Myth, War and Ethics in The Big Lebowski. *Substance* \#107, 2005, vol.34, n°2, p. 98-107.
+**COMER Todd A**. "This Agression Will Not Stand": Myth, War and Ethics in The Big Lebowski. *Substance* \#107, 2005, vol.34, n°2, p. 98-107.
 
-KAZECKI Jakub. "What Makes a Man, Mr. Lebowski?": Masculinity Under (Friendly) Fire in Ethan and Joel Coen's *The Big Lebowski*. *Atenea*, juin 2008, vol.28, n°1, p. 147-159.
+**KAZECKI Jakub**. "What Makes a Man, Mr. Lebowski?": Masculinity Under (Friendly) Fire in Ethan and Joel Coen's *The Big Lebowski*. *Atenea*, juin 2008, vol.28, n°1, p. 147-159.
 
-MARTIN Paul. RENEGAR Valerie R. The Man for His Time" *The Big Lebowski* as Carnivalesque Social Critique. *Communication Studies*, septembre 2007, vol.58, n°3, p. 299-313.
+**MARTIN Paul. RENEGAR Valerie R**. The Man for His Time" *The Big Lebowski* as Carnivalesque Social Critique. *Communication Studies*, septembre 2007, vol.58, n°3, p. 299-313.
 
-PEKAR Harvey. *Anthologie American Splendor. Volume 1*. 2<sup>e</sup> éd. Bussy-Saint-Georges : Ça et là, 2009, 192 p.
+**PEKAR Harvey**. *Anthologie American Splendor. Volume 1*. 2<sup>e</sup> éd. Bussy-Saint-Georges : Ça et là, 2009, 192 p.
 
 ### Femmes d'action / *Action babes* 
 
-BROWN Jeffrey A. Gender and the Action Heroine: Hardbodies and the "Point of No Return". *Cinema Journal*, printemps 1996, vol. 35, n°3, p. 52-71.
+**BROWN Jeffrey A**. Gender and the Action Heroine: Hardbodies and the "Point of No Return". *Cinema Journal*, printemps 1996, vol. 35, n°3, p. 52-71.
 
-INNESS Sherrie A. *Action Chicks: New Images of Tough Women in Popular Culture*. New York : Palgrave McMillan, 2004, 293 p.
+**INNESS Sherrie A**. *Action Chicks: New Images of Tough Women in Popular Culture*. New York : Palgrave McMillan, 2004, 293 p.
 
-KING Neal, McCAUGHEY Martha (dir.) *Reel Knockouts: Violent Women in the Movies*. Austin : University of Texas Press, 2001, 279 p.
+**KING Neal, McCAUGHEY Martha (dir.)**. *Reel Knockouts: Violent Women in the Movies*. Austin : University of Texas Press, 2001, 279 p.
 
-MARQUES Michel. À son corps défendu, à propos d'*Alien Resurrection*. *Tausend Augen*, printemps 1998, n°12, p. 43-46.
+**MARQUES Michel**. À son corps défendu, à propos d'*Alien Resurrection*. *Tausend Augen*, printemps 1998, n°12, p. 43-46.
 
-MOINE Raphaëlle. *Les femmes d'action au cinéma*. Paris : Armand Colin, 2010, 128 p.
+**MOINE Raphaëlle**. *Les femmes d'action au cinéma*. Paris : Armand Colin, 2010, 128 p.
 
-O'DAY Marc. "Beauty in Motion. Gender, spectacle, and action babe cinema". In : TASKER Yvonne (dir.), *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 201-218.
+**O'DAY Marc**. "Beauty in Motion. Gender, spectacle, and action babe cinema". In : TASKER Yvonne (dir.), *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 201-218.
 
-TASKER Yvonne. *Working Girls: Gender and Sexuality in Popular Cinema*. Londres, New York : Routledge, 1998, 234 p.
+**TASKER Yvonne**. *Working Girls: Gender and Sexuality in Popular Cinema*. Londres, New York : Routledge, 1998, 234 p.
 
-WILLIAMS Linda Ruth. "Ready for action: G.I.Jane, Demi Moore’s body and the female combat movie". In : TASKER Yvonne (dir.). *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 169-185.
+**WILLIAMS Linda Ruth**. "Ready for action: G.I.Jane, Demi Moore’s body and the female combat movie". In : TASKER Yvonne (dir.). *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 169-185.
 
 -   Autres typologies (classes sociales, corps de métiers)
 
-FRAYLING Christopher. *Mad, Bad and Dangerous? The Scientist and the Cinema*. Londres : Reaktion Books, 2006, 239 p.
+**FRAYLING Christopher**. *Mad, Bad and Dangerous? The Scientist and the Cinema*. Londres : Reaktion Books, 2006, 239 p.
 
-HORTON Andrew S. (dir.). *Comedy, Cinema, Theory*. Berkeley, Los Angeles, Oxford : University of California Press, 1991, 251 p.
+**HORTON Andrew S. (dir.)**. *Comedy, Cinema, Theory*. Berkeley, Los Angeles, Oxford : University of California Press, 1991, 251 p.
 
-MILLS. C. Wright. *White Collar. The American Middle Classes*. New York : Oxford University Press, 2002, 394 p.
+**MILLS. C. Wright**. *White Collar. The American Middle Classes*. New York : Oxford University Press, 2002, 394 p.
 
-MITCHELL Edwards. "Apes and Essences: Some Sources of Significance in the American Gangster Film". In : GRANT Barry Keith. *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 203-212.
+**MITCHELL Edwards**. "Apes and Essences: Some Sources of Significance in the American Gangster Film". In : GRANT Barry Keith. *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 203-212.
 
 ##Le corps
 
 -   Le corps au cinéma
 
-AMIEL Vincent. *Le corps au cinéma : Keaton, Bresson, Cassavetes*. Paris : PUF, 1998, 121 p.
+**AMIEL Vincent**. *Le corps au cinéma : Keaton, Bresson, Cassavetes*. Paris : PUF, 1998, 121 p.
 
-AUMONT Jacques (dir.). *L'invention de la figure humaine, Le cinéma : l'humain et l'inhumain*. Paris : Éditions de la Cinémathèque Française, 1995, 363 p.
+**AUMONT Jacques (dir.)**. *L'invention de la figure humaine, Le cinéma : l'humain et l'inhumain*. Paris : Éditions de la Cinémathèque Française, 1995, 363 p.
 
-BÉGHIN Cyril. Pour une histoire des mouvements. *Cahiers du Cinéma*, juin 2006, n°613, p. 70-73.
+**BÉGHIN Cyril**. Pour une histoire des mouvements. *Cahiers du Cinéma*, juin 2006, n°613, p. 70-73.
 
-BÉGHIN Cyril. Pour une histoire des mouvements (3) : L'étendue des actions. *Cahiers du Cinéma*, octobre 2006, n°616, p. 90-92.
+**BÉGHIN Cyril**. Pour une histoire des mouvements (3) : L'étendue des actions. *Cahiers du Cinéma*, octobre 2006, n°616, p. 90-92.
 
-BRENEZ Nicole. *De la figure en général et du corps en particulier. L'invention figurative au cinéma*. Paris, Bruxelles : De Boeck Université, 1998, 466 p.
+**BRENEZ Nicole**. *De la figure en général et du corps en particulier. L'invention figurative au cinéma*. Paris, Bruxelles : De Boeck Université, 1998, 466 p.
 
-BRENEZ Nicole. Les corps sans modèle. *Trafic*, été 1997, n°22, p. 121-131.
+**BRENEZ Nicole**. Les corps sans modèle. *Trafic*, été 1997, n°22, p. 121-131.
 
-DE BAECQUE Antoine. Le lieu à l'œuvre, Fragments pour une histoire du corps au cinéma. *Vertigo*, n°15, 1996, p. 11-24. (Coordination : Antoine De Baecque)
+**DE BAECQUE Antoine**. Le lieu à l'œuvre, Fragments pour une histoire du corps au cinéma. *Vertigo*, n°15, 1996, p. 11-24. (Coordination : Antoine De Baecque)
 
-DE KUYPER Éric. Le corps, fabrication Hollywood. *Trafic*, hiver 1997, n°24, p. 126-139.
+**DE KUYPER Éric**. Le corps, fabrication Hollywood. *Trafic*, hiver 1997, n°24, p. 126-139.
 
-DELMEULLE Frédéric. Des corps qui ne souffrent pas. Cinéma Gore et avatars du mort-vivant. *Sociétés et représentations*, CREDHESS, avril 1996, n°2, p. 159-171.
+**DELMEULLE Frédéric**. Des corps qui ne souffrent pas. Cinéma Gore et avatars du mort-vivant. *Sociétés et représentations*, CREDHESS, avril 1996, n°2, p. 159-171.
 
-SHAVIRO Steven. *The Cinematic Body*. Minneapolis, Londres : University of Minnesota Press, 1993, 276 p.
+**SHAVIRO Steven**. *The Cinematic Body*. Minneapolis, Londres : University of Minnesota Press, 1993, 276 p.
 
-SOBCHACK Vivian. *Carnal Thoughts: Embodiments & Moving Image Culture*. Berkeley : University of California Press, 2004, 328 p.
+**SOBCHACK Vivian**. *Carnal Thoughts: Embodiments & Moving Image Culture*. Berkeley : University of California Press, 2004, 328 p.
 
-TOMASOVIC Dick. *Le corps en abîme. Sur la figurine et le cinéma d'animation*. Pertuis : Rouge profond, 2006, 142 p.
+**TOMASOVIC Dick**. *Le corps en abîme. Sur la figurine et le cinéma d'animation*. Pertuis : Rouge profond, 2006, 142 p.
 
-VANCHERI Luc. *Figuration de l'inhumain. Essai sur le devenir-accessoire de l'homme filmique*. Saint-Denis : Presses Universitaires de Vincennes (PUV), 1993, 144 p.
+**VANCHERI Luc**. *Figuration de l'inhumain. Essai sur le devenir-accessoire de l'homme filmique*. Saint-Denis : Presses Universitaires de Vincennes (PUV), 1993, 144 p.
 
 -   Le corps en action
 
@@ -644,36 +644,36 @@ VANCHERI Luc. *Figuration de l'inhumain. Essai sur le devenir-accessoire de l'ho
 http://articles.nydailynews.com/2010-08-02/gossip/27071423\_1\_poster-italian-stallion-ufc&gt;
 (consulté le 27.06.2012).
 
-CLERGET Sébastien. Notes sur le (mauvais) sort du figurant dans le film d'action. *Positif*, janvier 1998, n°443, p. 92-94.
+**CLERGET Sébastien**. Notes sur le (mauvais) sort du figurant dans le film d'action. *Positif*, janvier 1998, n°443, p. 92-94.
 
-DREUX Emmanuel. Jackass olympique ou l'échec performant. *Drôle d'époque*, automne 2005, n°17, p. 71-79.
+**DREUX Emmanuel**. Jackass olympique ou l'échec performant. *Drôle d'époque*, automne 2005, n°17, p. 71-79.
 
-JULLIER Laurent. Images du saut périlleux, de Singin' in the rain à l'âge du numérique. *Drôle d'époque*, automne 2005, n°17, p. 57-67.
+**JULLIER Laurent**. Images du saut périlleux, de Singin' in the rain à l'âge du numérique. *Drôle d'époque*, automne 2005, n°17, p. 57-67.
 
-MAGUET Frédéric. Les films d'action: une rhétorique corporelle en régime d'utopie. *Revue Cultures & Musées*, n°7, p. 21-38.
+**MAGUET Frédéric**. Les films d'action: une rhétorique corporelle en régime d'utopie. *Revue Cultures & Musées*, n°7, p. 21-38.
 
-TASKER Yvonne. *Spectacular Bodies. Gender, Genre, and the Action Cinema*. Londres, New York : Routledge, 1993, 195 p.
+**TASKER Yvonne**. *Spectacular Bodies. Gender, Genre, and the Action Cinema*. Londres, New York : Routledge, 1993, 195 p.
 
 -   Le corps comique
 
-MONGIN Olivier. *Éclats de rire, Variations sur le corps comique*. Paris : Seuil, 2002, 351 p. (La couleur des idées)
+**MONGIN Olivier**. *Éclats de rire, Variations sur le corps comique*. Paris : Seuil, 2002, 351 p. (La couleur des idées)
 
-REVAULT D'ALLONNES Fabrice. "L'homme burlesque du cinéma". In : AUMONT Jacques (dir.), *L'invention de la figure humaine, Le cinéma : l'humain et l'inhumain*. Paris : Éditions de la Cinémathèque Française, 1995, p. 53-73.
+**REVAULT D'ALLONNES Fabrice**. "L'homme burlesque du cinéma". In : AUMONT Jacques (dir.), *L'invention de la figure humaine, Le cinéma : l'humain et l'inhumain*. Paris : Éditions de la Cinémathèque Française, 1995, p. 53-73.
 
 -   Le corps musclé, le bodybuilding
 
-DESBONNET Edmond. *Les Rois de la force, histoire de tous les hommes forts depuis les temps anciens jusqu'à nos jours*. Paris : Librairie Berger-Leuvault, Librairie Athlétique, 1911, 484 p.
+**DESBONNET Edmond**. *Les Rois de la force, histoire de tous les hommes forts depuis les temps anciens jusqu'à nos jours*. Paris : Librairie Berger-Leuvault, Librairie Athlétique, 1911, 484 p.
 
-HIPPOLYTE Francis, KASPROWICZ Laurent. "Le corps bodybuildé au cinéma : magie et anthropologie d'un spectacle". In : GIMELLO-MESPLOMB Frédéric (dir*.). Le cinéma des années Reagan, un modèle hollywoodien ?* Paris : Nouveau Monde Éditions, 2007, p. 193-212.
+**HIPPOLYTE Francis, KASPROWICZ Laurent**. "Le corps bodybuildé au cinéma : magie et anthropologie d'un spectacle". In : GIMELLO-MESPLOMB Frédéric (dir*.). Le cinéma des années Reagan, un modèle hollywoodien ?* Paris : Nouveau Monde Éditions, 2007, p. 193-212.
 
-HOQUET Thierry. Beefcake, corps gays hystériques… *Critique*, janvier-février 2011, n°764-765, p. 4-15.
+**HOQUET Thierry**. Beefcake, corps gays hystériques… *Critique*, janvier-février 2011, n°764-765, p. 4-15.
 
-KLEIN Alan M. Little Big Men. *Bodybuilding Subculture and Gender Construction*. Albany : State University of New York Press, 1993, 326 p.
+**KLEIN Alan M**. Little Big Men. *Bodybuilding Subculture and Gender Construction*. Albany : State University of New York Press, 1993, 326 p.
 
-NOVAK Ralph. Picks and Pans Main: Screen \[ en ligne \]. People. 14 janvier 1991. Disponible sur :
+**NOVAK Ralph**. Picks and Pans Main: Screen \[ en ligne \]. People. 14 janvier 1991. Disponible sur :
 &lt;www.people.com/people/archive/article/0,,20114167,00.html&gt; (consulté le 19.08.12)
 
-WILSON Eric. Stretching a Six-Pack \[ en ligne \]. New York Times. 12 mai 2010. Disponible sur :
+**WILSON Eric**. Stretching a Six-Pack \[ en ligne \]. New York Times. 12 mai 2010. Disponible sur :
 &lt;http://www.nytimes.com/2010/05/13/fashion/13calvin.html?\_r=1&gt;
 (consulté le 19.07.2012).
 
@@ -681,211 +681,211 @@ WILSON Eric. Stretching a Six-Pack \[ en ligne \]. New York Times. 12 mai 2010. 
 
 -   Les acteurs : généralités, *star system*
 
-AMIEL Vincent, NACACHE Jacqueline, SELLIER Geneviève, VIVIANI Christian (dir.). *L'acteur de cinéma : approches plurielles.* Rennes : PUR, 2007. 253 p. (Le Spectaculaire)
+**AMIEL Vincent, NACACHE Jacqueline, SELLIER Geneviève, VIVIANI Christian (dir.)**. *L'acteur de cinéma : approches plurielles.* Rennes : PUR, 2007. 253 p. (Le Spectaculaire)
 
-BENALLAL Mehdi, BERTHOMIEU Pierre, CIEUTAT Michel, DAHAN Yannick, VIVIANI Christian. Dictionnaire des interprètes de films d'action. *Positif*, janvier 1998, n°443, p. 85-91.
+**BENALLAL Mehdi, BERTHOMIEU Pierre, CIEUTAT Michel, DAHAN Yannick, VIVIANI Christian**. Dictionnaire des interprètes de films d'action. *Positif*, janvier 1998, n°443, p. 85-91.
 
-DIXON Simon. Ambiguous Ecologies : Stardom's Domestic Mise-en-Scène. *Cinema Journal*, hiver 2003, vol.42, n°2, p. 81-100.
+**DIXON Simon**. Ambiguous Ecologies : Stardom's Domestic Mise-en-Scène. *Cinema Journal*, hiver 2003, vol.42, n°2, p. 81-100.
 
-DYER Richard. *Stars*. 2<sup>e</sup> éd. Londres : BFI Publishing, 1998, 217 p.
+**DYER Richard**. *Stars*. 2<sup>e</sup> éd. Londres : BFI Publishing, 1998, 217 p.
 
-McDONALD Paul. "Reconceptualizing Stardom". In : DYER Richard. *Stars*. 2<sup>e</sup> éd. Londres : BFI Publishing, 1998, p. 175-211.
+**McDONALD Paul**. "Reconceptualizing Stardom". In : DYER Richard. *Stars*. 2<sup>e</sup> éd. Londres : BFI Publishing, 1998, p. 175-211.
 
 -   Études consacrées à Arnold Schwarzenegger
 
-BUSTAMANTE Cruz. Schwarzenegger Wants to Rescue California \[ en ligne\]. 8 août 2003. Disponible sur : &lt;
+**BUSTAMANTE Cruz**. Schwarzenegger Wants to Rescue California \[ en ligne\]. 8 août 2003. Disponible sur : &lt;
 http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governor-cruz-bustamante-top-issues?\_s=PM:ALLPOLITICS
 &gt; (consulté le 28.07.2012).
 
-GLASS Fred. Totally Recalling Arnold : Sex and Violence in the New Bad Future. *Film Quarterly*, automne 1990, vol.44, n°1, p. 2-13.
+**GLASS Fred**. Totally Recalling Arnold : Sex and Violence in the New Bad Future. *Film Quarterly*, automne 1990, vol.44, n°1, p. 2-13.
 
-JELINEK Elfriede. Mort d'un homme très réservé. *Trafic*, été 1997, n°22, p. 132-138.
+**JELINEK Elfriede**. Mort d'un homme très réservé. *Trafic*, été 1997, n°22, p. 132-138.
 
-MELLIER Denis. Narcisse mécanique ou le corps fantastique d'Arnold. *Vertigo*, n°15, 1996, p. 145-148. (Coordination : Antoine De Baecque)
+**MELLIER Denis**. Narcisse mécanique ou le corps fantastique d'Arnold. *Vertigo*, n°15, 1996, p. 145-148. (Coordination : Antoine De Baecque)
 
-MOMCILOVIC Jérôme. "Sur l'homme extraordinaire de cinéma : remarques sur l'œuvre d'Arnold Schwarzenegger"*.* In : GIMELLO-MESPLOMB Frédéric (dir.). *Le cinéma des années Reagan, un modèle hollywoodien ?* Paris : Nouveau Monde Éditions, 2007, p. 181-192.
+**MOMCILOVIC Jérôme**. "Sur l'homme extraordinaire de cinéma : remarques sur l'œuvre d'Arnold Schwarzenegger"*.* In : GIMELLO-MESPLOMB Frédéric (dir.). *Le cinéma des années Reagan, un modèle hollywoodien ?* Paris : Nouveau Monde Éditions, 2007, p. 181-192.
 
-ROMNEY Jonathan. "Arnold Through the Looking Glass". In : ARROYO José (dir.). *Action/Spectacle Cinema: A Sight and Sound Reader.* Londres : BFI Publishing, 2000, p. 34-39.
+**ROMNEY Jonathan**. "Arnold Through the Looking Glass". In : ARROYO José (dir.). *Action/Spectacle Cinema: A Sight and Sound Reader.* Londres : BFI Publishing, 2000, p. 34-39.
 
 ##Genres masculins, féminins, identités
 
 -   Masculinité et féminité : généralités
 
-BORDO Susan. *The Male Body. A New Look at Men in Public and in Private*. New York : Farrar, Straus & Giroux, 1999, 358 p.
+**BORDO Susan**. *The Male Body. A New Look at Men in Public and in Private*. New York : Farrar, Straus & Giroux, 1999, 358 p.
 
-CARNES Mark C., GRIFFEN Clyde (dir.). *Meanings for Manhood. Constructions of Masculinity in Victorian America*. Chicago, Londres : The University of Chicago Press, 1990, 181 p.
+**CARNES Mark C., GRIFFEN Clyde (dir.)**. *Meanings for Manhood. Constructions of Masculinity in Victorian America*. Chicago, Londres : The University of Chicago Press, 1990, 181 p.
 
-CAUGHIE John, KUHN Annette. *The Sexual Subject. A Screen Reader in Sexuality*. Londres, New York : Routledge, 1992, 339 p.
+**CAUGHIE John, KUHN Annette**. *The Sexual Subject. A Screen Reader in Sexuality*. Londres, New York : Routledge, 1992, 339 p.
 
-CLOVER Carol J. *Men, Women and Chain Saws. Gender in the Modern Horror Film*. Princeton : Princeton University Press, 1992, 260 p.
+**CLOVER Carol J**. *Men, Women and Chain Saws. Gender in the Modern Horror Film*. Princeton : Princeton University Press, 1992, 260 p.
 
-CONNELL R. W. *Masculinities*. 2<sup>e</sup> éd. Cambridge : Polity Press, 1995, 324 p.
+**CONNELL R. W**. *Masculinities*. 2<sup>e</sup> éd. Cambridge : Polity Press, 1995, 324 p.
 
-CONNELL R.W., HEARN Jeff, KIMMEL Michael S. *Handbook of Studies on Men and Masculinities*. Thousand Oaks : Sage Publications, 2005, 505 p.
+**CONNELL R.W., HEARN Jeff, KIMMEL Michael S**. *Handbook of Studies on Men and Masculinities*. Thousand Oaks : Sage Publications, 2005, 505 p.
 
-JEFFORDS Susan. *The Remasculinization of America*. Bloomington, Indianapolis : Indiana University Press, 1989, 215 p.
+**JEFFORDS Susan**. *The Remasculinization of America*. Bloomington, Indianapolis : Indiana University Press, 1989, 215 p.
 
-MARSH Margaret. "Suburban Men and Masculine Domesticity". In : CARNES Mark C., GRIFFEN Clyde (dir.). *Meanings for Manhood. Constructions of Masculinity in Victorian America*. Chicago, Londres : The University of Chicago Press, 1990, p. 111-127.
+**MARSH Margaret**. "Suburban Men and Masculine Domesticity". In : CARNES Mark C., GRIFFEN Clyde (dir.). *Meanings for Manhood. Constructions of Masculinity in Victorian America*. Chicago, Londres : The University of Chicago Press, 1990, p. 111-127.
 
-ROBINSON Sally. *Marked Men. White Masculinity in Crisis*. New York : Columbia University Press, 2000, 271 p.
+**ROBINSON Sally**. *Marked Men. White Masculinity in Crisis*. New York : Columbia University Press, 2000, 271 p.
 
-SAVRAN David. *Taking it Like a Man, White Masculinity, Masochism, and Contemporary American Culture*. Princeton : Princeton University Press, 1998, 382 p.
+**SAVRAN David**. *Taking it Like a Man, White Masculinity, Masochism, and Contemporary American Culture*. Princeton : Princeton University Press, 1998, 382 p.
 
-THEWELEIT Klaus. *Male Fantasies I. Women, Floods, Bodies, History*. Cambridge : Polity Press, 1987, 517 p.
+**THEWELEIT Klaus**. *Male Fantasies I. Women, Floods, Bodies, History*. Cambridge : Polity Press, 1987, 517 p.
 
 -   Masculinité et féminité au cinéma
 
-ASHCRAFT Karen Lee, FLORES Lisa A. Slaves With White Collars : Persistent Performances of Masculinity in Crisis. *Text and Performance Quarterly*, janvier 2000, vol.23, n°1, p. 1-29.
+**ASHCRAFT Karen Lee, FLORES Lisa A**. Slaves With White Collars : Persistent Performances of Masculinity in Crisis. *Text and Performance Quarterly*, janvier 2000, vol.23, n°1, p. 1-29.
 
-COHAN Steve, HARK Ina Rae. *Screening the Male: Exploring Masculinites in Hollywood Cinema*. Londres, New York : Routledge, 1993, 272 p.
+**COHAN Steve, HARK Ina Rae**. *Screening the Male: Exploring Masculinites in Hollywood Cinema*. Londres, New York : Routledge, 1993, 272 p.
 
-DOANE Mary Ann. The Clinical Eye. Medical Discourse in the "Woman's film" of the 1940s. *Poetics Today*, 1985, vol. 6, n°12, p. 205-227.
+**DOANE Mary Ann**. The Clinical Eye. Medical Discourse in the "Woman's film" of the 1940s. *Poetics Today*, 1985, vol. 6, n°12, p. 205-227.
 
-GATEWARD Frances, POMERANCE Murray. *Where the Boys Are. Cinemas of Masculinity and Youth*. Detroit : Wayne State University Press, 2005, 421 p.
+**GATEWARD Frances, POMERANCE Murray**. *Where the Boys Are. Cinemas of Masculinity and Youth*. Detroit : Wayne State University Press, 2005, 421 p.
 
-GREEN Ian. Malefunction. A Contribution to the Debate on Masculinity in the Cinema. *Screen*, 1984, vol.25, n°4-5, p. 36-48.
+**GREEN Ian**. Malefunction. A Contribution to the Debate on Masculinity in the Cinema. *Screen*, 1984, vol.25, n°4-5, p. 36-48.
 
-GREVEN David. Contemporary Hollywood Masculinity and the Double-Protagonist Film. *Cinema Journal*, été 2009, vol.48, n°4, p. 22-43.
+**GREVEN David**. Contemporary Hollywood Masculinity and the Double-Protagonist Film. *Cinema Journal*, été 2009, vol.48, n°4, p. 22-43.
 
-JEFFORDS Susan. *Hard Bodies: Hollywood Masculinity in the Reagan Era*. 2<sup>e</sup> éd. New Brunswick : Rutgers University Press, 2004, 224 p.
+**JEFFORDS Susan**. *Hard Bodies: Hollywood Masculinity in the Reagan Era*. 2<sup>e</sup> éd. New Brunswick : Rutgers University Press, 2004, 224 p.
 
-JEFFORDS Susan. "The Big Switch: Hollywood Masculinity in the Nineties". In : COLLINS Jim, RADNER Hillary, PREACHER COLLINS Ava. *Film Theory Goes to the Movies*. New York, Londres : Routledge, 1993, p. 196-208.
+**JEFFORDS Susan**. "The Big Switch: Hollywood Masculinity in the Nineties". In : COLLINS Jim, RADNER Hillary, PREACHER COLLINS Ava. *Film Theory Goes to the Movies*. New York, Londres : Routledge, 1993, p. 196-208.
 
-JULLIER Laurent, LEVERATTO Jean-Marc. *Les hommes-objets au cinéma*. Paris : Armand Colin, 2009, 128 p.
+**JULLIER Laurent, LEVERATTO Jean-Marc**. *Les hommes-objets au cinéma*. Paris : Armand Colin, 2009, 128 p.
 
-LEHMAN Peter. *Masculinity : Bodies, Movies, Culture*. Londres, New York : Routledge, 2001, 318 p.
+**LEHMAN Peter**. *Masculinity : Bodies, Movies, Culture*. Londres, New York : Routledge, 2001, 318 p.
 
-NEALE Steve. Masculinity as Spectacle. Reflections on Men and Mainstream Cinema. *Screen*, 1983, vol.24, n°6, p. 2-17.
+**NEALE Steve**. Masculinity as Spectacle. Reflections on Men and Mainstream Cinema. *Screen*, 1983, vol.24, n°6, p. 2-17.
 
-STUDLAR Gaylyn. *This Mad Masquerade. Stardom and Masculinity in the Jazz Age*. New York : Columbia University Press, 1996, 320 p.
+**STUDLAR Gaylyn**. *This Mad Masquerade. Stardom and Masculinity in the Jazz Age*. New York : Columbia University Press, 1996, 320 p.
 
 -   Théories féministes / Queer
 
-BUTLER Judith. *Gender Trouble: Tenth Anniversary Edition. Feminism and the Subversion of Identity*. New York : Routledge, 2002, 256 p.
+**BUTLER Judith**. *Gender Trouble: Tenth Anniversary Edition. Feminism and the Subversion of Identity*. New York : Routledge, 2002, 256 p.
 
-BUTLER Judith. *Trouble dans le genre. Le féminisme et la subversion de l'identité*. Paris : La Découverte, 2006, 284 p. (Traduction de l'anglais par Cynthia Kraus)
+**BUTLER Judith**. *Trouble dans le genre. Le féminisme et la subversion de l'identité*. Paris : La Découverte, 2006, 284 p. (Traduction de l'anglais par Cynthia Kraus)
 
-DE LAURETIS Teresa. *Théories Queer et Cultures Populaires. De Foucault à Cronenberg*. Paris : La Dispute, 2007, 189 p. (Traduction de l'anglais par Marie-Hélène Bourcier)
+**DE LAURETIS Teresa**. *Théories Queer et Cultures Populaires. De Foucault à Cronenberg*. Paris : La Dispute, 2007, 189 p. (Traduction de l'anglais par Marie-Hélène Bourcier)
 
-DOANE Mary Ann. Film and the Masquerade: Theorizing the Female Spectator. *Screen*, septembre-octobre 1982, vol. 23, n°3-4, p. 74-88.
+**DOANE Mary Ann**. Film and the Masquerade: Theorizing the Female Spectator. *Screen*, septembre-octobre 1982, vol. 23, n°3-4, p. 74-88.
 
-MULVEY Laura. Visual Pleasure and Narrative Cinema. *Screen*, automne 1975, vol.16, n°3, p. 6-18.
+**MULVEY Laura**. Visual Pleasure and Narrative Cinema. *Screen*, automne 1975, vol.16, n°3, p. 6-18.
 
-MULVEY Laura. *Visual and Other Pleasures*. 2<sup>e</sup> éd. Houndmills, New York : Palgrave McMillan, 2009, 232 p.
+**MULVEY Laura**. *Visual and Other Pleasures*. 2<sup>e</sup> éd. Houndmills, New York : Palgrave McMillan, 2009, 232 p.
 
-NEGRA Diane, TASKER Yvonne (dir.). *Interrogating Postfeminism. Gender and the Politics of Popular Culture*. Durham : Duke University Press, 2007, 344 p.
+**NEGRA Diane, TASKER Yvonne (dir.)**. *Interrogating Postfeminism. Gender and the Politics of Popular Culture*. Durham : Duke University Press, 2007, 344 p.
 
-REYNAUD Bérénice, VINCENDEAU Ginette (dir.). *20 ans de théories féministes sur le cinéma*. Condé-sur-Noireau : Corlet ; Paris : Télérama, 1993, 200 p. (CinémAction)
+**REYNAUD Bérénice, VINCENDEAU Ginette (dir.)**. *20 ans de théories féministes sur le cinéma*. Condé-sur-Noireau : Corlet ; Paris : Télérama, 1993, 200 p. (CinémAction)
 
 -   Les Afro-Américains
 
-BELTRAN Mary C. The New Hollywood Racelessness: Only the Fast, Furious, (and Multiracial) Will Survive. *Cinema Journal*, hiver 2005, vol.44, n°2, p. 50-67.
+**BELTRAN Mary C**. The New Hollywood Racelessness: Only the Fast, Furious, (and Multiracial) Will Survive. *Cinema Journal*, hiver 2005, vol.44, n°2, p. 50-67.
 
-BOGLE Donald. Toms, Coons, Mulattoes, Mammies and Bucks. An Interpretive History of Blacks in American Films. New York, Londres : Continumm. 2003, 454 p.
+**BOGLE Donald**. Toms, Coons, Mulattoes, Mammies and Bucks. An Interpretive History of Blacks in American Films. New York, Londres : Continumm. 2003, 454 p.
 
-HILL COLLINS Patricia. *Black Feminist Thought: Knowledge, Consciousness, and the Politics of Empowerment*. 2<sup>e</sup> éd. New York, Londres : Routledge, 2000, 336 p.
+**HILL COLLINS Patricia**. *Black Feminist Thought: Knowledge, Consciousness, and the Politics of Empowerment*. 2<sup>e</sup> éd. New York, Londres : Routledge, 2000, 336 p.
 
-ROGIN Michael. *Blackface, White Noise. Jewish Immigrants in the Hollywood Melting Pot*. Berkeley, Londres, Los Angeles : University of California Press, 1996, 339 p.
+**ROGIN Michael**. *Blackface, White Noise. Jewish Immigrants in the Hollywood Melting Pot*. Berkeley, Londres, Los Angeles : University of California Press, 1996, 339 p.
 
-SENGHOR Léopold Sédar. Les Noirs dans l'Antiquité méditerranéenne. *Éthiopiques*, 1972, n°11, p. 30-48.
+**SENGHOR Léopold Sédar**. Les Noirs dans l'Antiquité méditerranéenne. *Éthiopiques*, 1972, n°11, p. 30-48.
 
-WIEGMAN Robyn. "Black Bodies/American Commodities: Gender, Race, and the Bourgeois Ideal Contemporary Film". In : FRIEDMAN Lester D. *Unspeakable Images: Ethnicity and the American Cinema*. Urbana : University of Illinois Press, 1991, p. 308-328.
+**WIEGMAN Robyn**. "Black Bodies/American Commodities: Gender, Race, and the Bourgeois Ideal Contemporary Film". In : FRIEDMAN Lester D. *Unspeakable Images: Ethnicity and the American Cinema*. Urbana : University of Illinois Press, 1991, p. 308-328.
 
 -   Les Juifs
 
-ERENS Patricia. *The Jew in American Cinema*. Bloomington : Indiana University Press, 1984, 455 p.
+**ERENS Patricia**. *The Jew in American Cinema*. Bloomington : Indiana University Press, 1984, 455 p.
 
-STERBA Christopher M. *Good Americans. Italian and Jewish Immigrants during the First World War*. New York : Oxford University Press, 2003, 271 p.
+**STERBA Christopher M**. *Good Americans. Italian and Jewish Immigrants during the First World War*. New York : Oxford University Press, 2003, 271 p.
 
-STRATTON Jon. *Coming Out Jewish: Constructing Amivalent Identities*. Londres, New York : Routledge, 2000, 341 p.
+**STRATTON Jon**. *Coming Out Jewish: Constructing Amivalent Identities*. Londres, New York : Routledge, 2000, 341 p.
 
 -   Les Blancs
 
-BERNARDI Daniel (dir.). *Classic Hollywood, Classic Whiteness*. Minneapolis : University of Minnesota Press, 2001, 516 p.
+**BERNARDI Daniel (dir.)**. *Classic Hollywood, Classic Whiteness*. Minneapolis : University of Minnesota Press, 2001, 516 p.
 
-BONDANELLA Peter. *Hollywood Italians. Dagos, Palookas, Romeos, Wise Guys, and Sopranos*. New York : Continuum, 2004, 352 p.
+**BONDANELLA Peter**. *Hollywood Italians. Dagos, Palookas, Romeos, Wise Guys, and Sopranos*. New York : Continuum, 2004, 352 p.
 
-DYER Richard. *White*. Londres, New York : Routledge, 1997, 256 p.
+**DYER Richard**. *White*. Londres, New York : Routledge, 1997, 256 p.
 
 -   La question du double
 
-BERTHET Frédérique. Les figures du double au cinéma. *Imaginaire et Inconscient*, 2004, vol.2, n°14, p. 225-240.
+**BERTHET Frédérique**. Les figures du double au cinéma. *Imaginaire et Inconscient*, 2004, vol.2, n°14, p. 225-240.
 
-CHISHOLM Ann. Missing Persons and Bodies of Evidences. *Camera Obscura*, 2000, vol.15, n°43, p. 123-161.
+**CHISHOLM Ann**. Missing Persons and Bodies of Evidences. *Camera Obscura*, 2000, vol.15, n°43, p. 123-161.
 
-COHAN Steven. Cary Grant in the Fifties: Indiscretions of the Bachelor's Masquerade. *Screen*, hiver 1992, vol.33, n°4, p. 394-412.
+**COHAN Steven**. Cary Grant in the Fifties: Indiscretions of the Bachelor's Masquerade. *Screen*, hiver 1992, vol.33, n°4, p. 394-412.
 
-STEVENSON Robert Louis. *The Strange Case of Dr. Jekyll and Mr. Hyde*. Londres : Penguin, 2002, 88 p. (Penguin Classics)
+**STEVENSON Robert Louis**. *The Strange Case of Dr. Jekyll and Mr. Hyde*. Londres : Penguin, 2002, 88 p. (Penguin Classics)
 
 ##Super-héros
 
-BUKATMAN Scott. *Matters of Gravity. Special Effects and Supermen in the 20th Century*. Durham, Londres : Duke University Press, 2003, 279 p.
+**BUKATMAN Scott**. *Matters of Gravity. Special Effects and Supermen in the 20th Century*. Durham, Londres : Duke University Press, 2003, 279 p.
 
-FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Théorème n°13, Paris : Presses de la Sorbonne Nouvelle, 2009, 275 p.
+**FOREST Claude (dir.)**. *Du héros aux super héros. Mutations Cinématographiques*. Théorème n°13, Paris : Presses de la Sorbonne Nouvelle, 2009, 275 p.
 
 -   Les comic books
 
 ### Les comic books : généralités, histoire 
 
-BARNES Brook, CIEPLY Michael. A Supersized Custody Battle Over Marvel Superheroes \[ en ligne \]. New York Times. 21 mars 2010. Disponible sur :
+**BARNES Brook, CIEPLY Michael**. A Supersized Custody Battle Over Marvel Superheroes \[ en ligne \]. New York Times. 21 mars 2010. Disponible sur :
 &lt;http://www.nytimes.com/2010/03/21/business/21marvel.html?ref=marvel-entertainment-inc&gt;
 (consulté le 01.12.10).
 
-BEATY Bart. *Frederic Wertham and the Critique of Mass Culture*. Jackson : University Press of Mississippi, 2005, 238 p.
+**BEATY Bart**. *Frederic Wertham and the Critique of Mass Culture*. Jackson : University Press of Mississippi, 2005, 238 p.
 
-GABILLIET Jean-Paul. *Des comics et des hommes, histoire culturelle des comic books aux États-Unis*. Nantes : Éditions du temps, 2005, 478 p.
+**GABILLIET Jean-Paul**. *Des comics et des hommes, histoire culturelle des comic books aux États-Unis*. Nantes : Éditions du temps, 2005, 478 p.
 
-JONES Gerard. *Men of Tomorrow: Geeks, Gangsters and the Birth of the Comic Book*. New York : Basic Books, 2004, 384 p.
+**JONES Gerard**. *Men of Tomorrow: Geeks, Gangsters and the Birth of the Comic Book*. New York : Basic Books, 2004, 384 p.
 
-SAVAGE William W. Jr. *Comic Books and America, 1945-1954*. Norman, Londres : University of Oklahoma Press, 1990, 151 p.
+**SAVAGE William W. Jr**. *Comic Books and America, 1945-1954*. Norman, Londres : University of Oklahoma Press, 1990, 151 p.
 
-SIMS Chris. Time and Time Again: The Complete History of DC's Retcons and Reboots \[ en ligne \]. Comics Alliance. 8 juin 2001. Disponible sur :
+**SIMS Chris**. Time and Time Again: The Complete History of DC's Retcons and Reboots \[ en ligne \]. Comics Alliance. 8 juin 2001. Disponible sur :
 &lt;http://www.comicsalliance.com/2011/06/08/dc-comics-reboot-history/&gt;
 (consulté le 28.10.12)
 
-WANDTKE Terrence R. (dir.). The Amazing Transforming Superhero ! Essays on the Revision of Characters in Comic Books, Film, and Television. Jefferson, Londres : McFarland and Company, 2007, 244 p.
+**WANDTKE Terrence R. (dir.)**. The Amazing Transforming Superhero ! Essays on the Revision of Characters in Comic Books, Film, and Television. Jefferson, Londres : McFarland and Company, 2007, 244 p.
 
 "Who Owns the Superheroes?", annexe à l'article : BARNES Brook, CIEPLY Michael. A Supersized Custody Battle Over Marvel Superheroes \[ en ligne \]. New York Times. 21 mars 2010. Disponible sur : &lt;http://www.nytimes.com/2010/03/21/business/21marvel.html?ref=marvel-entertainment-inc&gt;
 (consulté le 01.12.2010).
 
-WRIGHT Bradford W. *Comic Book Nation, The Transformation of Youth Culture in America*. Baltimore, Londres : The Johns Hopkins University Press, 2001, 336 p.
+**WRIGHT Bradford W**. *Comic Book Nation, The Transformation of Youth Culture in America*. Baltimore, Londres : The Johns Hopkins University Press, 2001, 336 p.
 
 ### Adaptation des comic books au cinéma 
 
-CIMENT Gilles (dir.). *Cinéma et bande dessinée*. Courbevoie : CinémAction ; Condé-sur-Noireau : Corlet-Télérama, 1990, 280 p.
+**CIMENT Gilles (dir.)**. *Cinéma et bande dessinée*. Courbevoie : CinémAction ; Condé-sur-Noireau : Corlet-Télérama, 1990, 280 p.
 
-COCHARD Sandrine. Le retour en grâce des super-héros \[ en ligne \]. 20 minutes. 21 juillet 2008. Disponible sur : &lt;http://www.20minutes.fr/cinema/242510-Cinema-Le-retour-en-grace-des-super-heros.php&gt;
+**COCHARD Sandrine**. Le retour en grâce des super-héros \[ en ligne \]. 20 minutes. 21 juillet 2008. Disponible sur : &lt;http://www.20minutes.fr/cinema/242510-Cinema-Le-retour-en-grace-des-super-heros.php&gt;
 (consulté le 29.10.2012)
 
-DE SANTIS Sophie. Le retour des super-héros \[ en ligne \]. Le Figaro. 22 avril 2009. Disponible sur : &lt;
+**DE SANTIS Sophie**. Le retour des super-héros \[ en ligne \]. Le Figaro. 22 avril 2009. Disponible sur : &lt;
 http://www.lefigaro.fr/scope/articles-attitudes/2009/04/22/08011-20090422ARTFIG00004-le-retour-des-superheros-.php&gt;
 (consulté le 29.10.2012)
 
-HAVER Gianni, MEYER Michael. "Du papier au pixel : les balancements intermédiatiques du corps super héroïque". In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 159-171. **(**Théorème n°13)
+**HAVER Gianni, MEYER Michael**. "Du papier au pixel : les balancements intermédiatiques du corps super héroïque". In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 159-171. **(**Théorème n°13)
 
 "Live Action Movies Based On Comics Characters Or Just Superheroes Movies" \[ en ligne \]. superheroeslives.com. Disponible sur :
 &lt;http://www.superheroeslives.com/internationals/supergirl\_%281971%29.htm&gt;
 (consultée le 15.02.11).
 
-OUTLAW Kofi. Should Hollywood Listen to Fanboys About Comic Book Movies? \[ en ligne \]. Screen Rant. 2011. Disponible sur : &lt; http://screenrant.com/comic-book-superhero-movies-fanboys-kofi-105866/all/1/&gt; (consulté le 29.10.12)
+**OUTLAW Kofi**. Should Hollywood Listen to Fanboys About Comic Book Movies? \[ en ligne \]. Screen Rant. 2011. Disponible sur : &lt; http://screenrant.com/comic-book-superhero-movies-fanboys-kofi-105866/all/1/&gt; (consulté le 29.10.12)
 
-SABIN Roger. The Perils of Strip Mining. *Sight & Sound*, août 2008, vol.18, n°8, p. 24-27.
+**SABIN Roger**. The Perils of Strip Mining. *Sight & Sound*, août 2008, vol.18, n°8, p. 24-27.
 
 "Super-héros, le retour" \[ en ligne \]. Première. 16 juin 2008. Disponible sur :
 &lt;http://fluctuat.premiere.fr/Cinema/News/Super-heros-le-retour-3214884&gt;
 (consulté le 29.10.12)
 
-WANDTKE Terrence. "Introduction: Once Upon a Time Once Again". In : WANDTKE Terrence R. (dir.). *The Amazing Transforming Superhero ! Essays
+**WANDTKE Terrence**. "Introduction: Once Upon a Time Once Again". In : WANDTKE Terrence R. (dir.). *The Amazing Transforming Superhero ! Essays
 on the Revision of Characters in Comic Books, Film, and Television*.
 Jefferson, Londres : McFarland and Company. 2007, p. 5-32.
 
-WAXMAN Sharon. Marvel Wants to Flex Its Own Heroic Muscles as a Moviemaker \[ en ligne \]. 18 juin 2007. Disponible sur :
+**WAXMAN Sharon**. Marvel Wants to Flex Its Own Heroic Muscles as a Moviemaker \[ en ligne \]. 18 juin 2007. Disponible sur :
 &lt;http://www.nytimes.com/2007/06/18/business/media/18marvel.html?\_r=1&ref=marvel-entertainment-inc&gt;
 (consulté le 01.12.2010).
 
 -   Les super-héros : typologie
 
-CHABON Michael. Secret Skin, an essay in unitard theory \[ en ligne \]. The New Yorker. 10 mars 2008. Disponible sur : &lt; http://www.newyorker.com/reporting/2008/03/10/080310fa\_fact\_chabon&gt;
+**CHABON Michael**. Secret Skin, an essay in unitard theory \[ en ligne \]. The New Yorker. 10 mars 2008. Disponible sur : &lt; http://www.newyorker.com/reporting/2008/03/10/080310fa\_fact\_chabon&gt;
 (consulté le 01.07.2011).
 
 *Superhero Registry* \[ en ligne \]. Disponible sur : &lt;http://www.worldsuperheroregistry.com/&gt;
@@ -895,77 +895,77 @@ CHABON Michael. Secret Skin, an essay in unitard theory \[ en ligne \]. The New 
 
 ## Les super-héros dans les comic books 
 
-BROWN Jeffrey A. Comic Book Masculinity and the New Black Superhero. *African American Review*, 1999, vol. 33, n°1, p. 25-42.
+**BROWN Jeffrey A**. Comic Book Masculinity and the New Black Superhero. *African American Review*, 1999, vol. 33, n°1, p. 25-42.
 
-FEIFFER Jules. *The Great Comic Book Heroes*. New York : Dial Press, 1965, 189 p.
+**FEIFFER Jules**. *The Great Comic Book Heroes*. New York : Dial Press, 1965, 189 p.
 
-FINGEROTH Danny. *Disguised as Clark Kent. Jews, Comics, and the Creation of the Superhero*. New York, Londres : Continuum, 2007, 183 p.
+**FINGEROTH Danny**. *Disguised as Clark Kent. Jews, Comics, and the Creation of the Superhero*. New York, Londres : Continuum, 2007, 183 p.
 
-FINGEROTH Danny. *Superman on the Couch, What Superheroes Really Tell Us about Ourselves and Our Society*. New York, Londres : Continuum, 2004, 184 p.
+**FINGEROTH Danny**. *Superman on the Couch, What Superheroes Really Tell Us about Ourselves and Our Society*. New York, Londres : Continuum, 2004, 184 p.
 
-FOREST Claude. "L'émergence d'un genre : les super-héros". In : " FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 121-131. **(**Théorème n°13)
+**FOREST Claude**. "L'émergence d'un genre : les super-héros". In : " FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 121-131. **(**Théorème n°13)
 
-GAFFEZ Fabien, "La peau dure". In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 87-98. **(**Théorème n°13)
+**GAFFEZ Fabien**. "La peau dure". In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 87-98. **(**Théorème n°13)
 
-KLOCK Geoff. *How To Read Superhero Comics and Why*. New York, Londres : Continuum, 2002, 204 p.
+**KLOCK Geoff**. *How To Read Superhero Comics and Why*. New York, Londres : Continuum, 2002, 204 p.
 
 "Lawsuit filed by Spider-Man creator" \[ en ligne \]. BBC News. 13 novembre 2002. Disponible sur :
 
 &lt; http://news.bbc.co.uk/2/hi/entertainment/2458083.stm&gt; (consulté le 01.12.2010).
 
-MAIGRET Éric. *La représentation du corps masculin dans la bande dessinée de super-héros*. Cours présenté à l'Université Paris III Sorbonne Nouvelle, février 2010.
+**MAIGRET Éric**. *La représentation du corps masculin dans la bande dessinée de super-héros*. Cours présenté à l'Université Paris III Sorbonne Nouvelle, février 2010.
 
 ### Les super-héros au cinéma 
 
-BOATTO Sébastien. "Du surhomme à Superman". In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 121-131. **(**Théorème n°13)
+**BOATTO Sébastien**. "Du surhomme à Superman". In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 121-131. **(**Théorème n°13)
 
-CALVO David. Hyper Elastomer. *Tausend Augen*, 2007, n°31, p. 29-33.
+**CALVO David**. Hyper Elastomer. *Tausend Augen*, 2007, n°31, p. 29-33.
 
-GENUITE Jean-Marc. Le super-héros face au trauma du 11 septembre 2001 ou l'incarnation de la "destinée manifeste" des États-Unis. *Tausend Augen*, 2007, n°31, p. 20-22.
+**GENUITE Jean-Marc**. Le super-héros face au trauma du 11 septembre 2001 ou l'incarnation de la "destinée manifeste" des États-Unis. *Tausend Augen*, 2007, n°31, p. 20-22.
 
-LYON-CAEN Gilles. "*Incassable* : Le héros et l'infini". In : BIGORGNE David (dir.). *Le surhomme à l’écran*. Condé-sur-Noireau : Corlet ; Paris : Télérama, 2004, p. 255-258. (CinémAction)
+**LYON-CAEN Gilles**. "*Incassable* : Le héros et l'infini". In : BIGORGNE David (dir.). *Le surhomme à l’écran*. Condé-sur-Noireau : Corlet ; Paris : Télérama, 2004, p. 255-258. (CinémAction)
 
-TOMASOVIC Dick. "Le masque et la menace". In : In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 173-184. **(**Théorème n°13)
+**TOMASOVIC Dick**. "Le masque et la menace". In : In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009, p. 173-184. **(**Théorème n°13)
 
-YOCKEY Matt. Secret Identities. The Superhero Simulacrum and the Nation. *Cineaction*, été 2009, n°77, p. 34-41.
+**YOCKEY Matt**. Secret Identities. The Superhero Simulacrum and the Nation. *Cineaction*, été 2009, n°77, p. 34-41.
 
-VALMARY Hélène. Reflet dans le décor. *Tausend Augen*, 2007, n°31, p. 46-49.
+**VALMARY Hélène**. Reflet dans le décor. *Tausend Augen*, 2007, n°31, p. 46-49.
 
-WILSON Brian. Lost in Translation. On Frank Miller's *The Spirit*. *Cineaction*, 2009, n°77, p. 53-55.
+**WILSON Brian**. Lost in Translation. On Frank Miller's *The Spirit*. *Cineaction*, 2009, n°77, p. 53-55.
 
-WYNTER Kevin. Of Depth and Surface. Notes on Watchmen and other (non)reflections on phenomenological film experience. *Cineaction*, 2009, n°77, p. 68-72.
+**WYNTER Kevin**. Of Depth and Surface. Notes on Watchmen and other (non)reflections on phenomenological film experience. *Cineaction*, 2009, n°77, p. 68-72.
 
 ## Les super-héros : ouvrages de fiction
 
-BENDIS Brian Michael. "Death of Spider-Man". *Ultimate Comics Spider-Man*, vol. 4, n°156-160, Marvel Enterprises, 2011, 120 p.
+**BENDIS Brian Michael**. "Death of Spider-Man". *Ultimate Comics Spider-Man*, vol. 4, n°156-160, Marvel Enterprises, 2011, 120 p.
 
-CHABON Michael. *The Amazing Adventures of Kavalier & Klay*. New York : Picador, 2000, 648 p.
+**CHABON Michael**. *The Amazing Adventures of Kavalier & Klay*. New York : Picador, 2000, 648 p.
 
-LETHEM Jonathan. *The Fortress of Solitude*. Londres : Faber and Faber, 2003, 511 pages.
+**LETHEM Jonathan**. *The Fortress of Solitude*. Londres : Faber and Faber, 2003, 511 pages.
 
-MILLAR Mark. *Superman : Red Son*. Saint-Laurent-du-Var : Panini Comics, 2010, 250 p. (Traduction de l'américain par Nicole Duclos et Khaled Tadil)
+**MILLAR Mark**. *Superman : Red Son*. Saint-Laurent-du-Var : Panini Comics, 2010, 250 p. (Traduction de l'américain par Nicole Duclos et Khaled Tadil)
 
-SIEGEL Joe, SHUSTER Joe. *Superman 1939-40*. Paris : Semic, 2005, 270 p.
+**SIEGEL Joe, SHUSTER Joe**. *Superman 1939-40*. Paris : Semic, 2005, 270 p.
 
-STERN Roger. *Mort et vie de Superman*. Bruxelles : Lefrancq, 1996, 573 p. (traduction de l'américain par Stéphanie Benson et Pierre Efratas)
+**STERN Roger**. *Mort et vie de Superman*. Bruxelles : Lefrancq, 1996, 573 p. (traduction de l'américain par Stéphanie Benson et Pierre Efratas)
 
 -   Les super-héros : individualités
 
 ### Superman
 
-ECO Umberto. *De Superman au Surhomme*. Paris : Grasset, 1993, 217 p. (Traduction de l'italien par Myriem Bouzaher)
+**ECO Umberto**. *De Superman au Surhomme*. Paris : Grasset, 1993, 217 p. (Traduction de l'italien par Myriem Bouzaher)
 
-HOËT Sébastien. Le cristal et la trace. Portrait de Superman en messie impuissant. *Tausend Augen*, 2007, n°31, p. 23-26.
+**HOËT Sébastien**. Le cristal et la trace. Portrait de Superman en messie impuissant. *Tausend Augen*, 2007, n°31, p. 23-26.
 
-KRIEGEL Leonard. Superman's Shoulders: On the Healing Power of Illusion. *Southwest Review*, 2006, vol.91, n°2, p. 258-267.
+**KRIEGEL Leonard**. Superman's Shoulders: On the Healing Power of Illusion. *Southwest Review*, 2006, vol.91, n°2, p. 258-267.
 
-MELVIN Tessa. Cartoonists Explain Superman's New Image to His Fans \[ en ligne \]. New York Times. 14 juin 1987. Disponible sur :
+**MELVIN Tessa**. Cartoonists Explain Superman's New Image to His Fans \[ en ligne \]. New York Times. 14 juin 1987. Disponible sur :
 &lt;http://www.nytimes.com/1987/06/14/nyregion/cartoonists-explain-superman-s-new-image-to-his-fans.html?pagewanted=2&src=pm&gt;
 (consulté le 02.11.12)
 
-REEVE Christopher. *Vivre*. Paris : Éditions 1, 1998, 326 p.
+**REEVE Christopher**. *Vivre*. Paris : Éditions 1, 1998, 326 p.
 
-TELOTTE J. P. Man and Superman: The Fleischer Studio Negotiates the Reel. *Quarterly Review of Film and Video*, 2010, vol. 27, n°4, p. 290-298.
+**TELOTTE J. P**. Man and Superman: The Fleischer Studio Negotiates the Reel. *Quarterly Review of Film and Video*, 2010, vol. 27, n°4, p. 290-298.
 
 "When Superman Gets Boring" \[ en ligne \]. New York Times. 4 octobre
 1992. Disponible sur : &lt; http://www.nytimes.com/1992/10/04/opinion/when-superman-gets-boring.html&gt;
@@ -973,27 +973,27 @@ TELOTTE J. P. Man and Superman: The Fleischer Studio Negotiates the Reel. *Quart
 
 ### Autres super-héros 
 
-DEFALCO Tom. *Hulk. L'encyclopédie du titan vert*. Paris : Semic, 2003, 127 p. (Traduction de l'anglais par Edmond Tourriol)
+**DEFALCO Tom**. *Hulk. L'encyclopédie du titan vert*. Paris : Semic, 2003, 127 p. (Traduction de l'anglais par Edmond Tourriol)
 
-DELORME Stéphane. Critique de *Spider-Man 3*. *Cahiers du Cinéma*, mai 2007, n°623, p. 52.
+**DELORME Stéphane**. Critique de *Spider-Man 3*. *Cahiers du Cinéma*, mai 2007, n°623, p. 52.
 
-JEFFRIES Dru H. Convergence Culture and the Caped Crusader. Batman and the Environment of New Media. *Cineaction*, été 2009, n°77, p. 43-49.
+**JEFFRIES Dru H**. Convergence Culture and the Caped Crusader. Batman and the Environment of New Media. *Cineaction*, été 2009, n°77, p. 43-49.
 
-LEUPP Thomas. Behind the Mask: The Story of Spider-Man's Black Costume \[ en ligne \]. Reelz. 2007. Disponible sur : &lt;http://www.reelz.com/article/292/behind-the-mask-the-story-of-spider-mans-black-costume/&gt; (consulté le 29.10.12)
+**LEUPP Thomas**. Behind the Mask: The Story of Spider-Man's Black Costume \[ en ligne \]. Reelz. 2007. Disponible sur : &lt;http://www.reelz.com/article/292/behind-the-mask-the-story-of-spider-mans-black-costume/&gt; (consulté le 29.10.12)
 
-McCLELLAND Jeff. "From Jimmy Durante to Michael Chicklis: The Thing Comes Full Circle". In : WANDTKE Terrence R. (dir.). *The Amazing Transforming Superhero ! Essays on the Revision of Characters in Comic Books, Film, and Television*. Jefferson, Londres : McFarland and
+**McCLELLAND Jeff**. "From Jimmy Durante to Michael Chicklis: The Thing Comes Full Circle". In : WANDTKE Terrence R. (dir.). *The Amazing Transforming Superhero ! Essays on the Revision of Characters in Comic Books, Film, and Television*. Jefferson, Londres : McFarland and
 Company. 2007, p. 70-84.
 
-USUDA Kohei. Movements and Rhythms. On Sam Raimi's *Spider-Man 3*. *Cineaction*, hiver 2008, n°75, p. 70-71.
+**USUDA Kohei**. Movements and Rhythms. On Sam Raimi's *Spider-Man 3*. *Cineaction*, hiver 2008, n°75, p. 70-71.
 
 ### Le cas Incassable
 
-BURDEAU Emmanuel. Mon père ce héros. *Cahiers du Cinéma*, janvier 2001, n°553, p. 82-83.
+**BURDEAU Emmanuel**. Mon père ce héros. *Cahiers du Cinéma*, janvier 2001, n°553, p. 82-83.
 
-BURDEAU Emmanuel. Stupeur et Enchantement. *Cahiers du Cinéma*, septembre 2004, n°593, p. 29.
+**BURDEAU Emmanuel**. Stupeur et Enchantement. *Cahiers du Cinéma*, septembre 2004, n°593, p. 29.
 
-JOYARD Olivier. Inclassable. *Cahiers du Cinéma*, mars 2001, n°555, p. 48-49.
+**JOYARD Olivier**. Inclassable. *Cahiers du Cinéma*, mars 2001, n°555, p. 48-49.
 
-TESSON Charles. Les démons de la fiction. *Cahiers du Cinéma*, février 2001, n°554, p. 44-46.
+**TESSON Charles**. Les démons de la fiction. *Cahiers du Cinéma*, février 2001, n°554, p. 44-46.
 
-TESSON Charles. Sainte Trinité. *Cahiers du Cinéma*, octobre 2002, n°572, p. 82-83.
+**TESSON Charles**. Sainte Trinité. *Cahiers du Cinéma*, octobre 2002, n°572, p. 82-83.
