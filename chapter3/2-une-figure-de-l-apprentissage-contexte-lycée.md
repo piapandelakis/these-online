@@ -1,5 +1,175 @@
 #2. Une figure de l'apprentissage : le contexte du lycée dans les *teen movies*
 
+La position de nerd, indésirable et marginale, va occuper une place plus importante dans les récits hollywoodiens. Progressivement, les nerds ne seront plus seulement dans la position de personnages martyrisés, qui cherchent à se faire oublier. Les nerds vont s'affirmer comme tels,
+parfois pour mieux se venger de leurs détracteurs. Au niveau de sa présence au cinéma, le nerd va quelque peu se détacher du *schlemiel*, tout d'abord parce qu'il ne sera plus systématiquement juif, mais aussi parce qu'il va changer de statut au cœur de la narration. Le nerd a une place subalterne dans les films interprétés par Woody Allen et Jerry Lewis, mais au niveau des films eux-mêmes, il occupe la place de personnage principal - son corps ridicule et maladroit s'illustrant alors dans le genre de la comédie.
+
+À partir des années 80, le nerd va devenir un personnage secondaire dans le genre plus large du *youth film*. Certains de ces films, produits pour un public jeune fréquentant les multiplex, peuvent appartenir au genre de la comédie, mais reposent aussi sur d'autres formules
+génériques, souvent hybrides : *Sixteen Candles* est une comédie romantique, *The Breakfast Club* mélange drame et comédie, etc. Ces films, s'ils reposent sur une dynamique triangulaire (nerd, *jock*, *cheerleader* ou jolie fille) ne l'ont pourtant pas imposée. Ces stéréotypes sont déjà visibles dans le *College* de Buster Keaton réalisé en 1927 (*fig. 94*).
+
+![fig. 94.1](https://photos-5.dropbox.com/t/2/AAB8Pd9qVtZIHfeEAGV6XxUbFXXml8vG7PnWuazX4Bv1_w/12/38888477/png/32x32/1/_/1/2/77_college_keaton01.png/EJi00h0Y84AUIAIoAg/liR2qVIFwnBNL8i1IZ36RtQlB4e0Ti0jUWsxfZyWHFM?size=2048x1536&size_mode=3)
+![fig. 94.2](https://photos-4.dropbox.com/t/2/AABMkAbTF9UNvcCoJTTnxpW0nqwWZmLoM-QWTwBhib-Eog/12/38888477/png/32x32/1/_/1/2/77_college_keaton02.png/EJi00h0Y84AUIAIoAg/TZcphvbm6lwAzVIR51kK-mD48wo0fVgXwRd7YwwECBc?size=2048x1536&size_mode=3)
+![fig. 94.3](https://photos-3.dropbox.com/t/2/AADGQn5qt1BZWt0vRdtCT-PMnwN7MsEWVHdxuF7Xjc7W7w/12/38888477/png/32x32/1/_/1/2/77_college_keaton03.png/EJi00h0Y84AUIAIoAg/Q8WvfOjaiL9Q5EMOZm4x_jKXxvE0WhE842HktyFlJpQ?size=2048x1536&size_mode=3)
+![fig. 94.4](https://photos-4.dropbox.com/t/2/AADA0W9aew8b9R9waBHgA0evXDGwsD_ECdwWvXcMC6R0xg/12/38888477/png/32x32/1/_/1/2/77_college_keaton04.png/EJi00h0Y84AUIAIoAg/kRNAdr6Jk1v7Je2TDs7cHyulWgNKqgQ0V5R0kANyenw?size=2048x1536&size_mode=3)
+![fig. 94.5](https://photos-6.dropbox.com/t/2/AADyxqKwofAqkmNkziAyZZHrP31yk7yw0sfcRazF9GR6ew/12/38888477/png/32x32/1/_/1/2/77_college_keaton05.png/EJi00h0Y84AUIAIoAg/9SI43B-jIOwOsTiw-BHv9wFIDlsV3KDpZ8O9Osk4tQU?size=2048x1536&size_mode=3)
+![fig. 94.6](https://photos-4.dropbox.com/t/2/AABfi1DZed2v08A_tjvk9VydWDGWq2STy-C-Bvo0pucIcA/12/38888477/png/32x32/1/_/1/2/77_college_keaton06.png/EJi00h0Y84AUIAIoAg/9tYxZZybeixq8_Lhb-gTiyRIRQwqs7E6f8Z33LoEQt4?size=2048x1536&size_mode=3)
+
+######fig. 94 : Dans* College*, le triangle amoureux qui associe le nerd, le* jock *et la jolie fille populaire est déjà en place.
+
+Dans ce film, l'acteur incarne un jeune homme, Ronald, qui finit son
+parcours au lycée et poursuit son cursus à l'université. Il est amoureux
+de Mary, la fille la plus populaire du lycée, mais celle-ci est
+également convoitée par Jeff Brown, désigné comme un "*champion
+d'athlétisme*". Lors de la cérémonie de remise des diplômes, Ronald
+remporte le prix d'excellence, et ne peut s'empêcher, dans son discours,
+d'égratigner les *jocks* en fustigeant leur manque d'intérêt pour les
+livres et la connaissance. Cet acte semble juste, car Ronald ne fait que
+répliquer aux multiples moqueries dont il est la victime, mais il n'est
+guère apprécié de Mary qui lui lance : "*Ton discours était ridicule.
+Tout le monde préfère un athlète à un petit toutou pour professeur*".
+Elle lui annonce alors qu'elle ne changera pas d'avis sur lui tant qu'il
+n'aura pas revu son opinion sur les sportifs. Blessé, Ronald choisit la
+même université que Mary et décide de s'inscrire dans toutes les
+disciplines sportives, plutôt que de s'investir dans ses matières de
+prédilection.
+
+Le cœur du film est ainsi formé par les échecs successifs de Ronald, qui
+donnent l'occasion à Keaton de développer tout un répertoire du corps
+burlesque. Le personnage a beau se documenter sur les sports qu'il doit
+pratiquer, il finit par empêcher ses co-équipiers de jouer : au
+base-ball, aucun poste, physique ou stratégique, ne lui convient ; s'il
+s'essaie à la course à pied, il est dépassé par des enfants qui jouent
+en marge de la piste ; au javelot, il a beau se courber pour prendre le
+l'élan, l'objet vient se planter à ses pieds ; enfin, il est malmené au
+saut en hauteur par une barre récalcitrante qui tombe, se brise, quand
+ce n'est pas Ronald lui-même qui, malgré un saut réussi, atterrit la
+tête la première dans la sable. Seul Jeff Brown est amusé par ce
+spectacle, tandis que Mary admire la détermination de Ronald. Lors de la
+scène finale, le personnage de Keaton finit par réaliser une performance
+acceptable en aviron. Cependant, c'est au cours de cette dernière
+compétition que Mary est séquestrée par Jeff Brown, qui veut qu'elle
+soit renvoyée de l'université pour qu'il puisse l'épouser. Semblant
+soudain libéré de sa maladresse, Ronald court jusqu'au dortoir de Mary,
+et utilise tous les talents liés à différents sports pour accélérer sa
+course. Il réussit finalement à sauver la jeune femme, et c'est lui que
+celle-ci choisit d'épouser.
+
+Au-delà de cette structure triangulaire, *College* propose également un
+traitement intéressant du nerd sur le plan social. Issu d'une classe
+populaire, Ronald doit faire face au fossé qui le sépare de Mary sur ce
+plan. Alors qu'elle choisit sans difficultés d'intégrer l'université
+Clayton, Ronald doit trouver un emploi à mi-temps pour suivre le même
+chemin. Deux tentatives d'intégration professionnelle le mettent
+également en échec sur le plan physique. Dans le premier cas, il devient
+employé d'un drugstore, où son collègue fait preuve d'un véritable
+talent de jongleur pour mélanger les boissons. La tentative de Ronald
+pour imiter l'employé se révèle une catastrophe : il quitte
+précipitamment cet emploi lorsqu'il découvre que Mary est une habituée
+des lieux. Il trouve un autre travail, cette fois dans un restaurant qui
+cherche des employés de couleur. Il obtient la place grâce à un
+maquillage relevant du *blackface*. Nous aurons l'occasion de revenir
+sur cette pratique et sa signification, et plus largement sur la
+relation qu'entretiennent les nerds avec la figure de l'Afro-Américain.
+Ce dernier exemple montre que bien avant le cycle des *highschool
+movies*, et même avant les films de Jerry Lewis, la figure du nerd, si
+elle n'est pas nommée comme telle, existe bel et bien au sein de la
+structure typique que constitue le triangle amoureux rassemblant le
+nerd, le *jock* et la jeune fille populaire.
+
+Le nerd va plus tard s'imposer dans des productions destinées à ce que
+Timothy Shary appelle la "*génération multiplex*[^628]", mais aussi
+devenir un personnage récurrent à la télévision (voir les visuels en
+annexe, p. 724). La série *Happy Days* (1974), pionnière à cette égard,
+offre un usage récurrent du terme[^629]. Nerd y est encore un mot que
+les personnages utilisent pour se nommer les uns les autres,
+s'interpeller, sans qu'un personnage unique soit associé à cette
+étiquette. En 1977, dans leurs sketches diffusés dans *Saturday Night
+Live*, Ann Beatts et Rosie Shuster[^630] revendiquent cette identité -
+chose d'autant plus originale qu'elles sont des femmes. Leurs sketches
+resteront cependant un peu isolés dans leur présentation de *nerdettes*
+: des nerds féminins ne seront visibles à Hollywood que deux décennies
+plus tard. La télévision américaine décline les formes du nerd, en
+proposant parfois la forme plus générale du loser, ou en lorgnant du
+côté des geeks. Relevant de ce dernier cas, le nerd "spécialiste"
+(scientifique ou mathématicien) apparaîtra sous les traits de Ross dans
+*Friends* (1994), Daniel Farraday dans *Lost* (2004), Spencer Reid dans
+*Criminal Minds* (2005), ou encore du comptable Harry dans *Ugly Betty*
+(2006). Ces personnages ne correspondent pas totalement au stéréotype
+précédemment décrit puisqu'ils ne sont pas toujours stigmatisés
+physiquement, malgré une certaine maladresse dans leurs comportements
+sociaux. Ils ont parfois intéressé les études filmiques, par leur
+proximité avec la figure du mathématicien ou du savant fou[^631]. Une
+autre incarnation typique du nerd rassemble les personnages au contraire
+inquiétants, aux expressions faciales contorsionnées et aux
+comportements étranges : pensons ainsi à Buster, grand enfant de trente
+ans dans *Arrested Development* (2003), ou à Dwight Schrute dans *The
+Office* (2005). D'autres propositions solidifient un aspect particulier
+du nerd, qui ne lui est pas systématiquement associé : Hiro Nakamura
+dans *Heroes* (2006) apparaît comme un *geek*, amateur de comic books,
+tandis que le personnage de Kenny dans *My Name is Earl* (2005) entérine
+l'aspect efféminé souvent associé aux nerds en revendiquant son identité
+homosexuelle. Enfin, certaines séries reposent entièrement sur des
+personnages de nerds dont elles déclinent les stéréotypes les plus
+communs, comme *Square Pegs* (1982), *Freaks & Geeks* (1999) et *The Big
+Bang Theory* (2007). Ces trois derniers exemples ont en commun leur
+localisation du nerd dans ou en proximité avec le système scolaire, au
+lycée ou à l'université - un aspect qui retiendra notre attention ici.
+
+Le nerd a donc la possibilité d'être un personnage central, voire
+plusieurs personnages centraux, comme dans *Freaks and Geeks,* où le
+stéréotype s'incarne dans différentes peaux. Parfois, plus souvent
+peut-être, le nerd aura dans le récit une fonction secondaire,
+fournissant un prétexte à la comédie ou renforçant la catégorisation des
+personnages. Notre corpus central s'ouvre sur les films de John Hughes,
+qui sont exemplaires en ce sens : le nerd sert à faire rire, et à
+renforcer la séduction d'un autre personnage masculin, son inverse plus
+héroïque, ou, dans le contexte du lycée, simplement plus populaire. Nous
+commencerons ainsi par examiner trois films de John Hughes, qui
+s'inscrivent dans le genre du *youth film* identifié par Timothy
+Shary[^632] : *Sixteen Candles* (1984), *The Breakfast Club* (1985) et
+*Weird Science* (1986). Le genre du *youth film* se définit comme un
+ensemble de films produits et destinés à un public adolescent, et qui
+pour cette raison emploient des protagonistes plus jeunes, dans des
+récits orientés vers les problématiques liées à cette période de la vie
+(l'acceptation à l'école, les conflits avec les parents, la découverte
+de la sexualité, etc.). Shary remarque que les limites du genre font
+débat, comme le montre la diversité des appellations, de *teenpic* à
+*juve movie*[^633]. Il n'est pas notre objectif ici de retracer
+entièrement l'histoire du *youth film*, qui recouvre partiellement des
+genres aussi différents que la science-fiction, la comédie ou le
+mélodrame. Cependant, pour mieux comprendre le rôle des films de John
+Hughes, il faut les replacer dans le contexte qui était celui du *youth
+film* jusqu'alors. Dans les années 50-60, le genre est représenté par
+des productions d'exploitation qui se focalisent sur la délinquance et
+les diverses tentations qui menacent la jeunesse (*Teen-Age Crime Wave*
+en 1955, *High School Confidential!* en 1958), elles-mêmes dérivés des
+succès de *The Wild One* (1953) et de *Rebel Without a Cause* (1955).
+Dans ces deux derniers, les acteurs James Dean et Marlon Brando, âgés
+respectivement de 24 et 29 ans, n'ont certes pas l'âge d'être des
+adolescents, mais en incarnent la condition et les tourments qui
+l'accompagnent. Il faut également mentionner l'existence dans les années
+60 des *teen sex comedies*. Il s'agit de productions destinées aux
+adolescents, dans lesquelles le spectateur sera en réalité bien en peine
+de trouver plus qu'une légère coloration érotique. L'actrice Annette
+Funnicello s'est illustrée dans ce genre avec la série des *Beach Party*
+(de *Beach Party* en 1963 à *How to Stuff a Wild Bikini* en 1965). Sans
+posséder la frontalité d'un *American Pie*, *Beach Party* rend néanmoins
+manifeste la construction d'une stratégie de production autour d'une
+cible adolescente.
+
+Selon Shary, le *youth film* connaît une période creuse dans les années
+70, relayée par des figures de rébellion qui reprennent les énergies de
+l'adolescence, sans forcément en reproduire le contexte[^634]. Dans les
+années 50, une variété de films va être produite pour satisfaire la
+demande des baby-boomers, génération parvenue à l'âge d'effectuer ses
+propres choix de consommation. Cette nouvelle démographie va structurer
+le marché, et garantir le succès des blockbusters de la nouvelle
+génération (*Jaws* et *Star Wars*). Nous laisserons ici de côté les
+succès, pourtant cruciaux, de la franchise *Halloween* à partir de 1978
+pour nous centrer sur les films qui par leur formulation générique ont
+favorisé l'apparition des nerds.
+
+
+
 ##2.1 Une tentative de périodisation des nerds au cinéma
 
 
