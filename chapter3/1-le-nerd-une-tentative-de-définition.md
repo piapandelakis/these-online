@@ -373,7 +373,7 @@ ___
 
 [^542]: Ces dernières expressions sont mentionnées par Timothy Shary dans son étude du nerd dans le contexte du *youth film* de 1980 à 2001, cf. SHARY Timothy. *Generation Multiplex : The Image of Youth in Contemporary American Cinema*. 2002, p. 32.
 
-[^543]: SIMPSON J. A., WEINER E. S. C. *The English Oxford Dictionnary*. 2^e^ éd. (Volume X), 1991, p. 327.
+[^543]: SIMPSON J. A., WEINER E. S. C. *The English Oxford Dictionnary*. 2<sup>e</sup> éd. (Volume X), 1991, p. 327.
 
 [^544]: Ibid., p. 328.
 
@@ -421,7 +421,7 @@ ___
 
 [^566]: MULLER-KROEL Monica, As Nerdy As It Gets In Berlin. National Public Radio \[ en ligne \]. 16 décembre 2009.
 
-[^567]: "*an* *awkward, clumsy person, a blunderer; a 'born loser'* ", in SIMPSON J. A., WEINER E. S. C. *The English Oxford Dictionnary*. 2^e^ éd. (Volume XIV), 1991, p. 624.
+[^567]: "*an* *awkward, clumsy person, a blunderer; a 'born loser'* ", in SIMPSON J. A., WEINER E. S. C. *The English Oxford Dictionnary*. 2<sup>e</sup> éd. (Volume XIV), 1991, p. 624.
 
 [^568]: DE CHAMISSO Adalbert. *L'homme qui perdu son ombre*. 1814, p. 6.
 
