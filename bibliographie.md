@@ -2,6 +2,7 @@
 
 ##Ouvrages généraux
 
+
 -   Théorie
 
 **BARTHES Roland**. "La Chambre claire". In : *Œuvres complètes V*, *1977-80*. Paris : Seuil, 2002, p. 791-892.
