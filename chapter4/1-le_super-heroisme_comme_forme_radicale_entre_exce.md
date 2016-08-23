@@ -57,7 +57,7 @@ voient le comic book faire l'objet d'une stratégie de thématisation[^757] visa
 
 ![fig. 109](https://photos-5.dropbox.com/t/2/AADW1F7yQJEhyogKVXlUCB8-Lbm-_HN3jn1GAribE_JwbA/12/38888477/png/32x32/1/_/1/2/86_MILLER2.png/EJi00h0Y8vkTIAIoAg/VWQUVouqkW1EDezn5bTortI9p02sLNanjmccGXd_Ax4?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 109 : Âgés mais toujours aptes au combat, Superman et Batman s'affrontent dans* Batman: The Dark Knight *(1986), la relecture sombre et cynique de Frank Miller.*
+######fig. 109 : Âgés mais toujours aptes au combat, Superman et Batman s'affrontent dans* Batman: The Dark Knight *(1986), la relecture sombre et cynique de Frank Miller.
 
 L'histoire des comic books est aussi celle d'un antagonisme entre les deux "grands" de la publication, DC et Marvel. En termes d'image, DC possède des connotations plus classiques (grâce aux emblématiques Superman et Batman) tandis que Marvel s'est toujours distingué par un
 humour et une ironie plus affirmés. Les deux éditeurs ont cependant connu de nombreuses appellations (DC s'est d'abord appelé National Periodical Publications, tandis que Marvel s'est nommé Timely Comics de 1939 à 1950, et Atlas Comics dans les années 50[^759]) et leurs
@@ -91,22 +91,21 @@ Cependant, ces éléments déterminants n'interdisent pas une certaine souplesse
 télévisée[^777] *Batman* diffusée aux États-Unis dans les années 60, le ton devient *tongue-in-cheek*, le registre visuel psychédélique (*fig. 113*). Les couleurs des costumes sont saturées, les gadgets mutent en de grotesques accessoires. Et cette adaptation ne relève pas d'un iconoclasme ponctuel mais d'une variation à part entière, qui revient qui plus est de manière cyclique, par exemple au cinéma. Les versions nocturnes de Tim Burton (1989 et 1992, en *fig. 112*) ont ainsi laissé la place à la lecture "pop" des deux volets réalisés par Joel Schumacher dans les années 90 (*fig. 114*), *Batman Forever* (1995) et *Batman &
 Robin* (1997). De la même façon, Frank Miller, dans les années 80, est revenu à la noirceur des comics de Bob Kane après une version moins pessimiste dans les années 50, et le tournant psychédélique de la série télévisée diffusée dans les années 60. Christopher Nolan, au cinéma, a renversé la vision de Schumacher pour retourner à une vision considérée comme plus fidèle à l'esprit du personnage (et pour ce faire, il a adapté les récits de Miller, redoublant l'aspect cyclique du traitement de Batman).
 
-######fig. 110, 111, 112, 113, 114 : Sombre et cynique, ou flamboyant et psychédélique, Batman montre la versatilité qui caractérise la réécriture des super-héros, du comic-book au cinéma.*
+######fig. 110, 111, 112, 113, 114 : Sombre et cynique, ou flamboyant et psychédélique, Batman montre la versatilité qui caractérise la réécriture des super-héros, du comic-book au cinéma.
 
 ![fig. 110](https://photos-3.dropbox.com/t/2/AAD6iybuFOUkNmo6U7-p0Vm1GmncduI_E3Nmpuxk-DtI1w/12/38888477/png/32x32/1/_/1/2/01_kane_01.png/EJi00h0Y9vkTIAIoAg/Yx3xMimYK2hLsP2f0NEKaI_kKN5wpw7FSUyuyJEtFTM?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 110 : Le premier numéro de Detective Comics, illustrant les aventures de Batman : malgré ses coloris vifs, le ton est plutôt sombre dans le récit original de Kane.*
+######fig. 110 : Le premier numéro de Detective Comics, illustrant les aventures de Batman : malgré ses coloris vifs, le ton est plutôt sombre dans le récit original de Kane.
 
 ![fig. 111.1](https://photos-5.dropbox.com/t/2/AAB5kx2cKqBaRhRok8LUWRQRod2tvSfLgaD5ZAi8FLuoyg/12/38888477/jpeg/32x32/1/_/1/2/03_BURTON1_1.jpg/EJi00h0Y-PkTIAIoAg/lfPobqlpbGrrxN_yzGITQ3BvIsBLCQJf3tOWqnFtuX0?dl=0&size=2048x1536&size_mode=3)
 ![fig. 111.2](https://photos-4.dropbox.com/t/2/AACdDfqK9RiizTZpM73TgDauogv3Ps74PcHSxoRjs0CqTw/12/38888477/jpeg/32x32/1/_/1/2/04_BURTON1_2.jpg/EJi00h0Y-PkTIAIoAg/ijpmc-5nTWsRl1HsgGu1r-Og8fqrf8KHGRJWe1jfTJI?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 111 : Les versions cinématographiques de Tim Burton reprennent ce registre crépusculaire.*
+######fig. 111 : Les versions cinématographiques de Tim Burton reprennent ce registre crépusculaire.
 
 ![fig. 112.1](https://photos-2.dropbox.com/t/2/AADIukSY9QE78BbP9iqHHOuXM82eePn0gSb-yV-LqL9d_A/12/38888477/jpeg/32x32/1/_/1/2/BATMAN_50S_115-1.jpg/EJi00h0Y-vkTIAIoAg/Yibeh6YT_0WX-EgjFMfXUnfwdWEvoAe-QKCpmDb01Jw?dl=0&size=2048x1536&size_mode=3)
 ![fig. 112.2](https://photos-6.dropbox.com/t/2/AAAIqL9C6Tqb7G4yA4EhRdj2dN1WQpaH9w8SDNPUProeeg/12/38888477/jpeg/32x32/1/_/1/2/BATMAN_50S_134-1.jpg/EJi00h0Y-fkTIAIoAg/f1UnmOsQxnyKkDp-Wt4oR1ElZUPj0L7FgF3VU9PMJVs?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 112 : Ces deux numéros du comic Batman, publiés respectivement en
-avril 1958 (pour le numéro \#115) et en septembre 1960 (pour le numéro \#134), incarnent le versant fantaisiste du personnage : rupture des conventions, déformations, registre carnavalesque : le personnage de Batman évolue.*
+######fig. 112 : Ces deux numéros du comic Batman, publiés respectivement en avril 1958 (pour le numéro \#115) et en septembre 1960 (pour le numéro \#134), incarnent le versant fantaisiste du personnage : rupture des conventions, déformations, registre carnavalesque : le personnage de Batman évolue.
 
 ![fig. 113.1](https://photos-6.dropbox.com/t/2/AAA9OywfepgqntUPpqxIskoLEhcRhOYM_VmMhH6dm3PkeQ/12/38888477/png/32x32/1/_/1/2/06_adamwest_themovie.png/EJi00h0Y_PkTIAIoAg/qTWn0RPwTvqDaaEwgENKW0HeiaVPtOMgKe2WEjV0XQI?dl=0&size=2048x1536&size_mode=3)
 ![fig. 113.2](https://photos-1.dropbox.com/t/2/AAAH_krrihlX_EeljBd0pKxvaXoTP26LGukBuPgthxlHBQ/12/38888477/jpeg/32x32/1/_/1/2/batman_adamwest.jpg/EJi00h0Y-_kTIAIoAg/P_chPJyvX6zcWIfa3Ef4dPL5SQbXWA46nrH_c1AvIyc?dl=0&size=2048x1536&size_mode=3)
