@@ -71,7 +71,7 @@ Ce succès des personnages de nerds doit être replacé dans le contexte plus la
 ![fig. 152.1](https://photos-3.dropbox.com/t/2/AAA1xzHXHVOnslYCqUJklPWmGlMDcHIIkNg5XMPcQ6kdAg/12/38888477/png/32x32/1/_/1/2/Shia-in-Transformers-shia-labeouf-1670378-1680-946.png/EJi00h0YgPwTIAIoAg/ySLOvw3xJ0uN2IqPzApYsMIVHZlZCTm2uE2RtTKiPpI?size=2048x1536&size_mode=3)
 ![fig. 152.2](https://photos-2.dropbox.com/t/2/AAC6BrRG2LJEVgiMOkJGxgQrDWukXICZq9FBfjsKWvqTJA/12/38888477/png/32x32/1/_/1/2/Indiana%20Jones%20and%20the%20Kingdom%20of%20the%20Crystal%20Skull%20screenshot%201920x1080.png/EJi00h0YgPwTIAIoAg/dgPMsoIVnVQoyl5ZK1YfwlcbeZZULDIlWnfAHXboU34?size=2048x1536&size_mode=3)
 
-######fig. 152 : Shia LaBeouf, respectivement dans* Transformers* (2007) et dans *Indiana Jones and the Kingdom of the Crystal Skull* (2008) - dans ce dernier cas, le modèle héroïque est plus ancien que celui posé par Harrison Ford, puisque c'est ici le style vestimentaire de Marlon Brando* dans The Wild One *(1953) que LaBeouf convoque.*
+######fig. 152 : Shia LaBeouf, respectivement dans* Transformers* (2007) et dans *Indiana Jones and the Kingdom of the Crystal Skull* (2008) - dans ce dernier cas, le modèle héroïque est plus ancien que celui posé par Harrison Ford, puisque c'est ici le style vestimentaire de Marlon Brando* dans The Wild One *(1953) que LaBeouf convoque.
 
 Significativement, l'arrivée de ces acteurs plus chétifs n'occasionne pas un recours exacerbé aux avatars numériques. *The Amazing Spider-Man* comporte bien des effets spéciaux, mais ceux-ci ne donnent pas de capacités illimitées à Andrew Garfield, bien au contraire : Spider-Man ne s'est jamais autant cogné et heurté au monde environnant.
 
@@ -94,7 +94,7 @@ satisfait. Batman disparu (ou domestiqué, le film ne tranche pas), Robin fait f
 ![fig. 153.3](https://photos-6.dropbox.com/t/2/AACP9O0zJrhnSF2D6U2OZPpHPG1getfxGnbqqTiRnU2oFQ/12/38888477/png/32x32/1/_/1/2/112_darkknight03.png/EJi00h0YhvwTIAIoAg/VYzLE0li7DpYqFh7gQAswvMscAIrTejS1GLV5gN0MDc?size=2048x1536&size_mode=3)
 ![fig. 153.4](https://photos-1.dropbox.com/t/2/AAB1NSh-bUbVrwCtWxSx-R5-IdX9ur5N1DFP2rSdebQkaw/12/38888477/png/32x32/1/_/1/2/112_darkknight04.png/EJi00h0YhvwTIAIoAg/VDKcG18dWMiZ_Fi-Hw6hArKxkXmgSghe2MPaM7hrdng?size=2048x1536&size_mode=3)
 
-######fig. 153 : Robin jette son insigne dans* The Dark Knight Rises*(2012).
+######fig. 153 : Robin jette son insigne dans* The Dark Knight Rises* (2012).
 
 La ville subit une *tabula rasa*, le héros aussi - mais comment faut-il interpréter ce geste qui, maintes fois répétées, est riche de la somme de ses interprétations ? Est-ce le renoncement à l'action de Gary Cooper ? Est-ce le renoncement à la loi de Harry Callahan ? Le geste polysémique semble plein de toutes les contradictions qui attendent le candidat à l'héroïsme, tant le spectateur ne sait plus, à force, ce qui est contenu dans cette étoile abandonnée. *The Dark Knight Rises* parle d'un monde crépusculaire, où la crise signe l'agonie d'un modèle : le héros lui, se coupe à nouveau en deux, pour avancer, coûte que coûte.
 
