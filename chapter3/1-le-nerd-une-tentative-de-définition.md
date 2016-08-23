@@ -119,7 +119,7 @@ Dans *Take the Money and Run*, Woody Allen incarne Virgil Starkwell, personnage 
 ![fig. 84.3](https://photos-2.dropbox.com/t/2/AACPeBxttWFsXOSyAwBckWxLRT9ygJNpFSb6TkXJ49YfOA/12/38888477/png/32x32/1/_/1/2/1969_take%20the%20money%20and%20run11.png/EJi00h0Yw_gTIAIoAg/lOElf1lOV-RAz7hdeFddOiEVIcRKUyK-O59Bs8qNzuA?dl=0&size=2048x1536&size_mode=3)
 ![fig. 84.4](https://photos-1.dropbox.com/t/2/AADHpA7S7WRV31q8YvP6jRFUmd9AgNxpS0DbmFFMeMh4ug/12/38888477/png/32x32/1/_/1/2/1969_take%20the%20money%20and%20run12.png/EJi00h0Yw_gTIAIoAg/azStZzWc2ijes6LOcL2pmuA_cvOSmuESLO5fPfsCLVU?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 84 : Woody Allen tourmenté par de jeunes Afro-Américains dans *Take the Money and Run*.*
+######fig. 84 : Woody Allen tourmenté par de jeunes Afro-Américains dans *Take the Money and Run*.
 
 Le dégoût de soi et le désir de sortir de sa propre peau constituent le dénominateur commun entre les trois films. Ainsi Starkwell veut devenir un gangster (une figure souvent incarnée par des Italo-Américains) ; Allan, dans *Play It Again, Sam*, essaie d'imiter son idole, le Humphrey Bogart de *Casablanca* ; Zelig, dans le film du même nom, radicalise encore un peu plus ce désir puisqu'il essaie d'être tout - rabbin, Chinois, Noir, médecin - sauf lui-même. Ce n'est pas tant l'aspect intellectuel, lettré du personnage de Woody Allen à l'écran qui annonce la figure du nerd, mais cette incapacité à être soi, à tenir dans son corps et à porter sa propre identité - par un effet miroir, toutes les autres races deviennent désirables.
 
@@ -169,7 +169,7 @@ retrouvons ainsi cette double caractérisation par l'image et le langage. Le cor
 ![fig. 87.5](https://photos-6.dropbox.com/t/2/AAA76UK80TvnrCVvIUD1NIrs74Uz1_ACBEK2ebuSTeGxHg/12/38888477/png/32x32/1/_/1/2/ZELIG_07.png/EJi00h0Y7PgTIAIoAg/_hxKiDOqcNjBko_y2n-ON74SHJp0ANNn1N5_iJsEfSo?dl=0&size=2048x1536&size_mode=3)
 ![fig. 87.6](https://photos-2.dropbox.com/t/2/AAD50Ww3W7Shh6xg5Ntse-daRLkd3MUYqWzfJyLn9GvCdA/12/38888477/png/32x32/1/_/1/2/ZELIG_08.png/EJi00h0Y7PgTIAIoAg/zdBz1g8uPPlr4lOwR8isv0N8gfqeTSQhM8h9f6ldnXE?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 87 : Italien, Asiatique, homme d'affaires, Afro-Américain, ou simplement doté homme d'une corpulence nors-normes, Zelig absorbe les identités des personnes qu'il côtoie.*
+######fig. 87 : Italien, Asiatique, homme d'affaires, Afro-Américain, ou simplement doté homme d'une corpulence nors-normes, Zelig absorbe les identités des personnes qu'il côtoie.
 
 Significativement, cette capacité de caméléon n'affecte pas son genre : Zelig reste un homme quelque soit le sexe de son interlocuteur[^590]. Incarnation d'une mobilité quasi totale, Zelig, tout en naviguant entre les identités, voit cependant son corps disparaître. Zelig est camouflé derrière toutes les incarnations que son corps assume mais qui ne sont *pas lui*, ce qui renoue avec l'être-soi (*"being me*") problématique de *Play it Again, Sam*. Plutôt que vouloir être une seule figure (un gangster, Bogart), Allen met ainsi en scène un état plus extrême encore, celui d'un corps qui embrasse l'altérité dans sa totalité[^591]. Sortir de soi, c'est ici fréquemment changer de race : la nature indésirable du corps résulte clairement de la judéité. Les passages d'une identité à l'autre racontent alors les difficultés du corps juif à s'intégrer et à effacer sa différence (en anglais "*passing*"), forcé par son identité
 première à devenir un caméléon.
@@ -261,7 +261,7 @@ Comme *That's My Boy*, *The Nutty Professor* présente un transfuge de *schlemie
 ![fig. 89.1](https://photos-6.dropbox.com/t/2/AADTQE3Vx5diB7hmo5yZC2vD6NvK7P9Nfj21x3_QtyX9-w/12/38888477/png/32x32/1/_/1/2/73_NUTTY_lewis_facea.png/EJi00h0Y8fgTIAIoAg/NN72tmmiN9Pa4vCMY_0f1v-6E7o_IVKd3gwPBAixASk?dl=0&size=2048x1536&size_mode=3)
 ![fig. 89.2](https://photos-4.dropbox.com/t/2/AABrM0rQ7w1eAlBdq0cD1crut1I24iBla9KEQAeDopCOqg/12/38888477/png/32x32/1/_/1/2/73_NUTTY_lewis_faceb.png/EJi00h0Y8fgTIAIoAg/aNnaOsevvpzvsVNOoKlG5R-buciY8l0R8vVBuA05sOo?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 89 : Le professeur Kelp se transforme en Buddy Love grâce à une potion de son invention dans* The Nutty Professor *(1963).*
+######fig. 89 : Le professeur Kelp se transforme en Buddy Love grâce à une potion de son invention dans* The Nutty Professor *(1963).
 
 Celui-ci porte tous les attributs physiques du nerd : il porte bien entendu des lunettes, ses cheveux sont gras, ses dents proéminentes. À ces aspects physiques peu amènes, s'ajoutent une posture recroquevillée, un timbre de voix nasillard et une parole lénifiante qui provoque
 l'endormissement de ses étudiants. Enfin, comme si ces stigmates n'étaient pas suffisants, le personnage bégaie, à la plus grande exaspération de ceux qui l'entourent. Suite à une nouvelle humiliation, Kelp va inventer une potion grâce à laquelle il se transforme en Buddy Love, *alter ego* dont le corps et l'attitude lui sont opposés en tous points. Alors que Kelp possède un physique disgracieux, Love (dont le nom est sans ambiguïté) est séduisant et apprêté. Il sait se servir de son corps, pour séduire les dames ou chanter dans un night-club : sa confiance en lui, cependant, le rend particulièrement odieux (*fig. 89.2*). Comme dans la nouvelle de Robert Louis Stevenson (*The Strange Case of Dr. Jekyll and Mr. Hyde*, paru en 1886), le passage entre les deux identités devient de plus en plus fréquent, et Kelp a du mal a contrôler les transformations, ainsi qu'à vivre deux vies parallèles. Alors que Buddy Love doit chanter devant les membres de l'université lors d'une fête, les effets de la potion soudainement se dissipent, révélant ainsi la véritable identité du séducteur. Cette transformation prend des allures de régression, et même presque d'un vieillissement
@@ -542,4 +542,4 @@ ___
 
 [^626]: L'incompatibilité du corps avec le contexte de la plage est également un sujet classique des récits qui mettent en scène des hommes juifs, pensons à la série télévisée *Curb Your Enthusiasm*, et aux épisodes "*The Larry David Sandwich*" et "*The Thong*" (entre autres).
 
-[^627]: Nous employons le terme en reprenant la définition élaborée parDick Tomasovic, comme double "*esseulé*", in TOMASOVIC Dick. *Le corps en abîme.* op. cit., p. 59.
+[^627]: Nous employons le terme en reprenant la définition élaborée par Dick Tomasovic, comme double "*esseulé*", in TOMASOVIC Dick. *Le corps en abîme.* op. cit., p. 59.
