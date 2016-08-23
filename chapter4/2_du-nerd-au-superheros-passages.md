@@ -90,22 +90,22 @@ Le terme de mascarade doit nous rappeler l'aspect essentiellement performatif de
 structure plus globalement le récit, elle permet également à l'acteur de mettre en scène son talent, de prouver sa capacité à habiter différents personnages, même au sein d'une seule et même fiction. C'est aussi l'occasion d'un jeu métanarratif, puisque dans la plupart de nos
 exemples, c'est Superman qui *joue à* être Clark Kent. L'exemple tiré de Superman sur lequel nous avons terminé le chapitre précédent ouvre un entre-deux destiné à devenir récurrent. Il n'est cependant pas nécessairement exemplaire quant aux moyens de représentation mis en œuvre. En effet, les lunettes permettent dans ce cas une oscillation discrète d'un personnage à l'autre, alors que les nécessités de l'action appellent des changements plus radicaux.
 
-######fig. 115, 116, 117 : Quelques formes de la transformation super-héroïque.*
+######fig. 115, 116, 117 : Quelques formes de la transformation super-héroïque.
 
 ![fig. 115.1](https://photos-1.dropbox.com/t/2/AAANZAt9P1NLCTZlmPyFVPnzelQilDoFvUoDl5TH1htUuw/12/38888477/png/32x32/1/_/1/2/89_SPIDERMAN-62.png/EJi00h0YhPoTIAIoAg/llvYt3MXeJ2ua91rmqoBC4VchE_xGArTgxPmXV53leg?dl=0&size=2048x1536&size_mode=3)
 ![fig. 115.2](https://photos-5.dropbox.com/t/2/AABHDlTpIBy89-vTEKE7pP3UmY6bGhOzNZLfxgKNBn1Xyw/12/38888477/png/32x32/1/_/1/2/89_SPIDERMAN-63.png/EJi00h0YhPoTIAIoAg/IK4ZsPuAcBSPFNumEBxXXIoGC6EzgrlpaEAXKUYLOaw?dl=0&size=2048x1536&size_mode=3)
 ![fig. 115.3](https://photos-3.dropbox.com/t/2/AABIYq-Aw9jFg1VYI511LE-V4ZoznxIMl6pGLLVMMK42RQ/12/38888477/png/32x32/1/_/1/2/89_SPIDERMAN-61.png/EJi00h0YhPoTIAIoAg/RXjYy0hYJWzgGrEdpO2Lr_5_yfmafT2MUzqUQcK1OFY?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 115 : Spider-Man reprend le principe de l'ellipse supermanienne (*Spider-Man*).*
+######fig. 115 : Spider-Man reprend le principe de l'ellipse supermanienne (*Spider-Man*).
 
 ![fig. 116.1](https://photos-6.dropbox.com/t/2/AAAY3SR1HicpdaqrhIX8HGdfsdFOJph_75kuZdAgnHZWpA/12/38888477/png/32x32/1/_/1/2/89_spman_42_office04.png/EJi00h0Yh_oTIAIoAg/OsIe7WskBv3z_ZlaokfJgYZvFufW_TH4MEq33UItd1A?dl=0&size=2048x1536&size_mode=3)
 ![fig. 116.2](https://photos-3.dropbox.com/t/2/AABVc58c71gSFPEKVEoRDJ5NSVzDUZ3Od0f4Rj6AqE47Lg/12/38888477/png/32x32/1/_/1/2/89_spman_42_office05.png/EJi00h0Yh_oTIAIoAg/Zq1APg4bs2EPhgrG-Cuho0dNF67sbh_I80nMnCgrPVY?dl=0&size=2048x1536&size_mode=3)
 ![fig. 116.3](https://photos-3.dropbox.com/t/2/AADV623NTI4yHxLM_iRA5KaVmpUMzrv7PsjPtngdvvBExA/12/38888477/png/32x32/1/_/1/2/89_spman_42_office06.png/EJi00h0YhfoTIAIoAg/O4mbGaZ1JAAYqtFgArIxK9pFAHSPOwRf8dYEadMlKeU?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 116 : À la faveur d'un saut dans le vide, un fondu mélange le costume de Kent et celui de Superman (*Superman II*).*
+######fig. 116 : À la faveur d'un saut dans le vide, un fondu mélange le costume de Kent et celui de Superman (*Superman II*).
 
 
-![fig. 117.1](https://photos-1.dropbox.com/t/2/AAAPRYhyQj8QxRx5wL1688YtuWmAQ76y6hLxucPa2r7F9g/12/38888477/png/32x32/1/_/1/2/89_SUPERMAN2-8.png/EJi00h0YjfoTIAIoAg/gsDZu57tLmZO46FzuZ7TUydBiiHFAmziWqMQmWmmQ6o?dl=0&size=2048x1536&size_mode=3
+![fig. 117.1](https://photos-1.dropbox.com/t/2/AAAPRYhyQj8QxRx5wL1688YtuWmAQ76y6hLxucPa2r7F9g/12/38888477/png/32x32/1/_/1/2/89_SUPERMAN2-8.png/EJi00h0YjfoTIAIoAg/gsDZu57tLmZO46FzuZ7TUydBiiHFAmziWqMQmWmmQ6o?dl=0&size=2048x1536&size_mode=3)
 ![fig. 117.2](https://photos-6.dropbox.com/t/2/AACNuhf9jfJMN273UmYj65oWcomlGATjoxXvWgwNF82dFA/12/38888477/png/32x32/1/_/1/2/89_SUPERMAN2-8b.png/EJi00h0YjfoTIAIoAg/-KZATBWpIbBnte2ylRt6Ay55bRObVonK4xR1bC6fJKY?dl=0&size=2048x1536&size_mode=3)
 ![fig. 117.3](https://photos-3.dropbox.com/t/2/AACQ-Er21_WFQA3upzJ6P-rEaSIBkmVxGKmKoUsCvt8TFQ/12/38888477/png/32x32/1/_/1/2/89_SUPERMAN2-9.png/EJi00h0YjfoTIAIoAg/eg4jEg8352-JZg8uGsDs8DWWnL4pYIotbCuzOBPwM7M?dl=0&size=2048x1536&size_mode=3)
 ![fig. 117.4](https://photos-5.dropbox.com/t/2/AABxAp6K3yGczSoEKn6CvuyLBMipjwEuYk5uNKnU5-WHpg/12/38888477/png/32x32/1/_/1/2/89_SUPERMAN2-10.png/EJi00h0YjfoTIAIoAg/htXEB1vNgMWPeG9DcSdSY9aleLoqzNMdZ4Kn_D6yb14?dl=0&size=2048x1536&size_mode=3)
@@ -113,7 +113,7 @@ exemples, c'est Superman qui *joue à* être Clark Kent. L'exemple tiré de Supe
 ![fig. 117.6](https://photos-5.dropbox.com/t/2/AAD6ZuUlOM77Q6rm57dk365pI_EOzDiKKgnJirzQa9AwhA/12/38888477/png/32x32/1/_/1/2/89_SUPERMAN2-12.png/EJi00h0YjfoTIAIoAg/4SGUOW0ofTYz9FkSOJaSn0JYeQKlC7z63MDZHTxIL1A?dl=0&size=2048x1536&size_mode=3)
 
 
-######fig. 117 : Si la chemise est facilement retirée, qu'en est-il du pantalon ?* Superman *élude cette question, en utilisant le mélange d'images.*
+######fig. 117 : Si la chemise est facilement retirée, qu'en est-il du pantalon ?* Superman *élude cette question, en utilisant le mélange d'images.
 
 Nous repérons ainsi quatre types de transitions visibles dans les films, mais souvent hérités de l'animation ou du comic book. Le premier cas provient très directement de la logique graphique de ce dernier, et plus spécifiquement de la case. L'ellipse, qui effectue le passage en l'oblitérant, reste un des moyens favoris de la transformation, tous médias confondus. Dans ce cas, la caméra suit Clark Kent, en général en pleine course, et par le moyen du *cut*, le retrouve mystérieusement changé, habillé en Superman, sans qu'on sache au juste ce qu'il est
 advenu du costume et des lunettes de Clark Kent. Ce type de représentation positionne le personnage du côté de la magie. Le *cut* simple est cependant assez rare. Dans d'autres cas, les scénaristes s'en sortent en faisant d'un objet une cabine d'essayage de fortune – même si
@@ -144,7 +144,7 @@ propre identité en dansant, et en intégrant une danse qui lui est a priori ét
 ![fig. 118.1](https://photos-6.dropbox.com/t/2/AADbmTIardsuX5_ZnjL-PPVFD1O_pL8FgrpAq6_c6zN9Mg/12/38888477/png/32x32/1/_/1/2/BANDWAGON07.png/EJi00h0YjvoTIAIoAg/-qbPOb9hYAJngIugsjRh6WQMRwJczLZp37aYp7-MuPw?dl=0&size=2048x1536&size_mode=3)
 ![fig. 118.2](https://photos-5.dropbox.com/t/2/AACvNii5cdI-_-ymZZCeJf1QPNPxgvL15hxUbnKy_BmItg/12/38888477/png/32x32/1/_/1/2/BANDWAGON08.png/EJi00h0Yj_oTIAIoAg/_QqTuEpCGMBxMaTRJByxhJd3GrRCtAB_lRGv5z-nWAU?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 118 : Fred Astaire trouve son identité par l'entremise de la danse dans* The Band Wagon*. Le découpage de cette scène est visible dans les annexes.*
+######fig. 118 : Fred Astaire trouve son identité par l'entremise de la danse dans* The Band Wagon*. Le découpage de cette scène est visible dans les [annexes](../annexes.md).
 
 Qui plus est, le photomaton apparaît comme un accessoire de cette recherche de l'identité, dans les deux cas. Chez Astaire, il n'est qu'un des nombreux jeux qui sont ici convoqués, et qui tous donnent des réponses erronées, contestées par la vérité de la danse – en cela, ils
 participent à cette affirmation de l'identité retrouvée *(fig. 118*). Dans *Superman III*, si danse de l'identité il y a, c'est pour mieux achopper à l'impossible réconciliation entre Clark Kent et son *alter ego*. Pour Cavell, la danse de Fred Astaire revient à posséder son corps *de nouveau*, plutôt qu'à posséder un corps *nouveau* ("*not finding a new body but finding his body anew \[...\] ?*[^865]").
@@ -158,7 +158,7 @@ participent à cette affirmation de l'identité retrouvée *(fig. 118*). Dans *S
 ![fig. 119.7](https://photos-2.dropbox.com/t/2/AACZvdXH77cSR5Ag1wgNp3yKFRty86O0exOolpi_ifCRfw/12/38888477/png/32x32/1/_/1/2/IDENTITYDANCE10.png/EJi00h0Yl_oTIAIoAg/YBsIiJMT9r9oFNtgsLXMdXvscFcnsfv3BvSuOGlA8ys?dl=0&size=2048x1536&size_mode=3)
 ![fig. 119.8](https://photos-6.dropbox.com/t/2/AABL0r_RN7UxurhQHmZ1TLn7zEssHZxjjUtfRPweLdjNSw/12/38888477/png/32x32/1/_/1/2/IDENTITYDANCE11.png/EJi00h0Yl_oTIAIoAg/H1JVCYMJn7fqYkgkcz6ijG07a9R4xFl48kBHDsh8RWc?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 119 : Superman produit sa propre danse de l'identité - la cabine photographique n'éclaircit pas le mystère de l'entre-deux, mais affirme la centralité de cet espace indéfini.*
+######fig. 119 : Superman produit sa propre danse de l'identité - la cabine photographique n'éclaircit pas le mystère de l'entre-deux, mais affirme la centralité de cet espace indéfini.
 
 Il y a quelque chose de similaire chez Superman, toujours pris dans le même nœud de contradictions, mais rejouant sans cesse le scénario original où il se découvre, réalise sa propre exceptionnalité – où, en somme, il redevient un héros après s'être oublié.
 
@@ -181,12 +181,12 @@ retrouvée.
 ![fig. 120.9](https://photos-3.dropbox.com/t/2/AABjuhi7aO7IGoxUuTBr8cWRLEq6v50RJ-UbfZMRXUy4CA/12/38888477/png/32x32/1/_/1/2/SUPERMAN_III-161.png/EJi00h0YovoTIAIoAg/GMLjO0zL4XtSokmlH7J4W6griNoQLcXzbAKMUt98uwY?dl=0&size=2048x1536&size_mode=3)
 ![fig. 120.10](https://photos-4.dropbox.com/t/2/AABJwkcYTjH3RZ2LUF6TtGD3mSxDsTXl4Jt5J2B9wmRLcw/12/38888477/png/32x32/1/_/1/2/SUPERMAN_III-162.png/EJi00h0YovoTIAIoAg/P_rGfjT1DWttIBfqnUEKdKXpgofBt37PtlQA3Jvqv-s?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 120 : Clark Kent se bat contre Superman dans Superman III ; paradoxalement, il gagne, pour révéler qu'il contient son alter ego.
+######fig. 120 : Clark Kent se bat contre Superman dans *Superman III* ; paradoxalement, il gagne, pour révéler qu'il contient son alter ego.
 
 Il faut alors repenser le déroulement de la scène dans son entier : sorti d'un Superman empoisonné, Clark Kent révèle un autre Superman sous son costume. Il y a là comme un jeu de poupées russes qui s'opère, motif qui se substitue dès lors au symbole connu de la pièce à deux facettes. Les peaux du héros s'empilent et se succèdent, mais sur un mode circulaire, qui garantit le retour du même – en vertu du principe de sérialité, qui exige que l'histoire puisse être reprise là où elle a été laissée. Ce principe de la succession des peaux n'est pas limité au cas de Superman. Rappelons-nous *Spider-Man III*, et l'usage qui est fait dans ce cas du costume noir qui recouvre le costume traditionnel, l'empoisonne avant de prendre possession de son propriétaire. Chez Spider-Man comme chez Superman, ce ressort narratif permet d'articuler la dualité classique du personnage sur un mode plus complexe, en
 introduisant un troisième terme. Il y a donc deux types de performance de l'identité, ou de *danses de l'identité*, pour reprendre la terminologie de Stanley Cavell. L'une, incarnée par la scène du photomaton dans *Superman III* (et par le retrait des lunettes dans *Superman*) affirme l'existence d'un espace invisible, insaisissable, existant entre les deux personnalités. Des stratégies visuelles (cabine téléphonique, tourbillon) sont alors mises en place pour rétablir une continuité visuelle dans une action qui repose sur la rupture. Un second type de performance inverse cette logique, et produit, au lieu d'un corps pour deux personnalités, deux corps pour une entité que l'on perçoit du coup comme homogène. Dans les deux cas, le corps héroïque est à la fois tout puissant (capable d'être lui-même, ou radicalement autre), et incapable de réconcilier deux modèles opposés. Condamné à répéter la même gestuelle pour devenir héroïque, Superman existe sur la base d'un corps contradictoire, empêché en même temps que sans entraves.
 
-##2.3 Au-delà de Superman : la possibilité du morphing
+##2.3 Au-delà de Superman : la possibilité du *morphing*
 
 Si nous avons beaucoup parlé de celui qui est considéré comme le premier super-héros, il ne faut pas oublier qu'il n'est pas le seul à pratiquer la transformation, au prétexte d'une double identité. L'excuse, ou la justification de la protection des proches est récurrente dans les récits de comic books, qui proposent à partir de ce postulat une variété de héros masqués. L'originalité de Superman, dans ce cadre plus large, est qu'il ne possède pas de masque à proprement parler – mais nous avons vu quelles stratégies reproduisent une forme de "masquage". Chez les autres héros masqués, la transformation prend un tour tout différent.
 Chez Batman, elle n'est pas problématique en soi, car le héros ne possède pas de super-pouvoirs : son habillement reprend en général les codes du film d'Action qui fragmentent le corps et le résument à une boucle, une ceinture, une botte (ce procédé est récurrent dans les
@@ -221,7 +221,7 @@ Bruce Banner possède donc une apparence humaine, au quotidien ; mais il suffit 
 ![fig. 121.1](https://photos-3.dropbox.com/t/2/AAAqNCn_CF2e4DKB03obwJFcoDnhG-QvNDAlwKsgGDmLRg/12/38888477/png/32x32/1/_/1/2/92_LEEHULK_force01.png/EJi00h0YpPoTIAIoAg/LJLiUnw6NXvptpRudaM0Ej7ivNUnPgBs7hlRK9ASLa0?dl=0&size=2048x1536&size_mode=3)
 ![fig. 122.2](https://photos-1.dropbox.com/t/2/AAATOe_2XmuQ2eLoWWGfDEcQcYWCqY4uDfxxl0_1SsCW1A/12/38888477/png/32x32/1/_/1/2/92_LEEHULK_force02.png/EJi00h0YpPoTIAIoAg/tPF_8R29ZqUQf0ekucp4rj-125fM1EQQfISbp46Htg4?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 121 : Hulk, un personnage sauvage et destructeur (ici dans la version d'Ang Lee).*
+######fig. 121 : Hulk, un personnage sauvage et destructeur (ici dans la version d'Ang Lee).
 
 La transformation est multiple : sa peau prend une couleur verte, son visage devient monstrueux. Physiquement, le personnage change complétement d'échelle, ce qui occasionne le déchirement total des vêtements, pour ne laisser que l'emblématique pantalon. Bien que plus
 radicale, cette transformation se rapproche un peu du feuilletage supermanien : le super-héros se cache en dessous de l'homme normal, à fleur de peau – ceci est encore plus vrai de Bruce Banner qui ne peut, du coup, se mettre en colère sans risquer de voir surgir la bête
@@ -232,17 +232,17 @@ systématiquement au vert à l'impression. Stan Lee, observant ce problème, dé
 
 Les aspects fondamentaux du personnage persistent dans les films respectifs de Ang Lee (*Hulk* en 2003) et Leterrier (*The Incredible Hulk*, en 2008). Dans la première version, Eric Bana incarne le personnage de Bruce Banner (*fig. 122.1, 122.2*).
 
-######fig. 122 : Deux lectures du personnage de Hulk.*
+######fig. 122 : Deux lectures du personnage de Hulk.
 
 ![fig. 122.1](https://photos-5.dropbox.com/t/2/AAAXghMGdBzJRrCMywcvuVVW42HWLUjobKpmLhWRY6a1HA/12/38888477/png/32x32/1/_/1/2/92_LEEHULK_normal.png/EJi00h0Yq_oTIAIoAg/4c2Iqrne720iqcPWu6y-isw-gRON2-vRKyft5hGmKBw?dl=0&size=2048x1536&size_mode=3)
 ![fig. 122.2](https://photos-2.dropbox.com/t/2/AAAE5FYuGSA84hAYtE8t7E--8Y9tqWsKSRrIN_kTuMvAcg/12/38888477/png/32x32/1/_/1/2/92_LEEHULK_force04.png/EJi00h0Yq_oTIAIoAg/gxbe2X5ZPUNIOJHZmzKL5d4o2X2z0WdmT5jW_u0nNZE?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 122.1 et 122.2 : De Bruce Banner à son alter ego sauvage : les deux visages du personnage principal dans* Hulk *(version d'Ang Lee).*
+######fig. 122.1 et 122.2 : De Bruce Banner à son alter ego sauvage : les deux visages du personnage principal dans* Hulk *(version d'Ang Lee).
 
 ![fig. 122.3](https://photos-6.dropbox.com/t/2/AADTzPFcF8_UcViwbNOBK7bmU-BDUNs-pIE-ZsaQaYQtnw/12/38888477/png/32x32/1/_/1/2/LETTR_HULK_normal.png/EJi00h0Yq_oTIAIoAg/kbSFAfvhkktipFbiyF47lEinKfBkNX2Gl47kh49t6OI?dl=0&size=2048x1536&size_mode=3)
 ![fig. 122.4](https://photos-3.dropbox.com/t/2/AAD65bClB0Alqt77QCOzSr6V0ryRsWdd4pFPpTUiwpKLOQ/12/38888477/png/32x32/1/_/1/2/92_LETER_HULK_FORCE1-04.png/EJi00h0Yq_oTIAIoAg/VWHvUfaYEvSJ4i7K6vCF27WCW5Ht7b2dc761WBouiD4?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 122.3 et 122.4 : La version de Louis Leterrier accentue encore davantage le caractère sauvage, animal, de Hulk.*
+######fig. 122.3 et 122.4 : La version de Louis Leterrier accentue encore davantage le caractère sauvage, animal, de Hulk.
 
 Le film commence en réalité en présentant Bruce Banner père, un scientifique obsédé par sa recherche, bridé par les dirigeants de l'armée pour laquelle il travaille. Excédé par les limites qui lui sont imposées, il finit par s'inoculer le produit de sa recherche. Le sérum provoque des mutations de son ADN, qui sont logiquement transmises à son premier né. Lorsqu'il est découvert, il devient fou, et dans un accès de rage, tue sa femme sous les yeux de son fils Bruce. Ce dernier refoule ce souvenir douloureux et poursuit son enfance dans une famille
 d'accueil. Devenu adulte, il poursuit sans le savoir la recherche de son père biologique, dont il ignore tout. Il travaille dans un laboratoire avec Betty Ross (Jennifer Connelly), la fille du général même qui s'était opposé à la recherche de Bruce Banner père. Betty et Bruce viennent de se séparer lorsque l'histoire commence. L'incapacité de Bruce à vouloir se confronter à son passé constitue une des raisons de la séparation. Lors d'un accident au laboratoire, le canon à rayons gamma sur lequel Bruce et son équipe travaillent est activé. Pour protéger son collègue, Bruce se place devant le canon et son corps absorbe les rayons. À la surprise générale, il survit à cet accident, et semble même en meilleure santé. Bruce ignore que les rayons gamma se sont combinés à la mutation transmise par son père. Au même moment, le père de Bruce, sorti de prison, reprend contact avec ce dernier pour lui donner des indices sur sa nouvelle nature. Bruce se transforme une première fois en Hulk dans son laboratoire, qu'il détruit méthodiquement. La seconde fois, il se transforme alors que Betty est menacée par des chiens mutants, fabriqués par Bruce Banner père. Betty contacte son père, le général Ross, persuadée que celui-ci aidera Bruce. Isolé dans une base militaire, Bruce / Hulk est soumis à des tests, mais finit par s'échapper, sous sa forme monstrueuse. La dernière partie du film présente la traque dont Bruce est l'objet, et l'escalade qui fait suite entre la colère du père de Betty et la colère proportionnelle de Hulk. Seule Betty, qui s'adresse à lui en utilisant le nom de "Bruce", même lorsqu'il possède sa forme mutante, parvient à le contenir. Le film indique, en guise d'épilogue, une possible domestication du pouvoir de
@@ -281,7 +281,7 @@ dessein (faire de Hulk une arme pour l'armée américaine). Ce motif du mauvais 
 ![fig. 123.2](https://photos-4.dropbox.com/t/2/AADfWBZMmozyRKeRHyLgIl3KSXxRIzV-2apu-2e0xOgfsQ/12/38888477/png/32x32/1/_/1/2/93_LETR_HULK_ABOMINATION3.png/EJi00h0Yt_oTIAIoAg/OSK1Nj6rGooUip0HbD3Qy00NK__SlffqnItVi8fzA5E?dl=0&size=2048x1536&size_mode=3)
 ![fig. 123.3](https://photos-1.dropbox.com/t/2/AABKHS09vqOoF3JCO_UxhCnNUtvzeBq_hsj9Nv-8zR8S0A/12/38888477/png/32x32/1/_/1/2/93_LETR_HULK_ABOMINATION4.png/EJi00h0Yt_oTIAIoAg/v-pn88s6-5ASvHew5HLu1Mbptj0jmWmCEJGfCESjGGc?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 123 : Hulk est humanisé par le face-à-face avec The Abomination, qui incarne une animalité plus radicale encore (dans la version de Louis Leterrier).*
+######fig. 123 : Hulk est humanisé par le face-à-face avec The Abomination, qui incarne une animalité plus radicale encore (dans la version de Louis Leterrier).
 
 Enfin, la relation entre Betty et Hulk, capitale dans les deux films, connaît des formulations proches. À chaque fois, le personnage féminin permet aussi de compenser la monstruosité du héros. Dans les deux récits, le spectateur voit fréquemment Bruce se regarder dans le miroir,
 sans y trouver de réponse – ou alors, c'est sur le mode du cauchemar (dans le premier film, Bruce rêve que son reflet est l'image de Hulk, qui brise le miroir pour venir l'étrangler). Cette rencontre entre Banner et son reflet débouche systématiquement sur une impasse : le
@@ -320,14 +320,14 @@ Ici, ce rapprochement n'est que temporaire, car une fois transformé, le cœur d
 ![fig. 124.7](https://photos-4.dropbox.com/t/2/AABF4Pn-Pg_3tb6RoHyeLO8tB-YcEm4-aTRABTyw6k4ByA/12/38888477/png/32x32/1/_/1/2/LEEHULK_transf3_15.png/EJi00h0YvPoTIAIoAg/U44EQPlxJcltpbqaa3xEmUC6St3lhiwGdY4AQEDmf70?dl=0&size=2048x1536&size_mode=3)
 ![fig. 124.8](https://photos-4.dropbox.com/t/2/AAB2TuxE84D_yrNnr5k_IFg1STbDw0LWHAqI9uZBUsSulQ/12/38888477/png/32x32/1/_/1/2/LEEHULK_transf3_16.png/EJi00h0YvfoTIAIoAg/lLU19BIBkgzOkDqwQCG9razE0-TkrAJkIrEes9JBo5w?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 124 : Un aperçu du morphing mis en place dans la version d'Ang Lee.*
+######fig. 124 : Un aperçu du morphing mis en place dans la version d'Ang Lee.
 
 ![fig. 125.1](https://photos-3.dropbox.com/t/2/AAAjGY2gzFYmD4Kt-aLJgRrhlkPrBzTQi1Zhk5kGfDZeng/12/38888477/png/32x32/1/_/1/2/LETR_HULK_transf01-04.png/EJi00h0YxvoTIAIoAg/peg-i7iCG_gIPOE0xHywaNbJDxoUmSCY78BxejNkPo0?dl=0&size=2048x1536&size_mode=3)
 ![fig. 125.2](https://photos-6.dropbox.com/t/2/AADCvl3_aYuNM3it7_YxaM9Vt7rPQzW40oz7PnT1ccvBhw/12/38888477/png/32x32/1/_/1/2/LETR_HULK_transf01-05.png/EJi00h0YxvoTIAIoAg/EcxjA4TNGooxlB3Qw3z1VFnI9QRPO20bi1_vw7yAiq0?dl=0&size=2048x1536&size_mode=3)
 ![fig. 125.3](https://photos-6.dropbox.com/t/2/AADfDN7_3FsJXF6To6V33_zdi3ykbIbKHtPkAdWYK0DDkw/12/38888477/png/32x32/1/_/1/2/LETR_HULK_transf01-08.png/EJi00h0YxvoTIAIoAg/MEufuyoRvPh4E8LNJF8um_mWEeTTqZfnWRGQgGAS3Bw?dl=0&size=2048x1536&size_mode=3)
 ![fig. 125.4](https://photos-5.dropbox.com/t/2/AAB0bNJSqcCEjST8MHHkeu52C-0D477gZzUq9J_UhtIWFg/12/38888477/png/32x32/1/_/1/2/LETR_HULK_transf01-09.png/EJi00h0YxvoTIAIoAg/KADAK3yXmo4iBPJ5ecIk9i0Iz4S13_GpD3oN_fJ00_s?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 125 : Aller-retours d'une identité à l'autre dans la version de Leterrier.*
+######fig. 125 : Aller-retours d'une identité à l'autre dans la version de Leterrier.
 
 Dans une scène précédant le combat final, Banner reçoit l'antidote censé le guérir – à condition qu'il se transforme une dernière fois. L'acteur devient alors Hulk grâce au morphing, mais le corps, combattant des énergies contraires, se déforme, se distend, recule vers son état humain pour revenir à la forme du monstre, avant d'osciller sans cesse entre les deux apparences (*fig. 125*). Ceci permet de raccorder l'acteur à son avatar, car dans ce cas le lien est moins évident que dans le film d'Ang Lee.
 
