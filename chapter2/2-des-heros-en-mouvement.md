@@ -104,22 +104,13 @@ le reste de sa personne est visuellement comprimé. Ces aspects visuels réunis 
 Nous posons ainsi que l'Action peut être amenée à empêcher l'action. L'espace force le corps à se révéler au lieu de rester la toile de fond devant laquelle se déroulent les exploits du héros. Ainsi, si "action" il y a, celle-ci ne réside plus dans un geste à proprement parler mais précisément là où le geste est empêché. Concernant le héros, cette action qui doit être précipitée hors du corps au lieu d'être exprimée manifeste un épuisement psychologique, comme en témoigne la parole de McClane, quasiment un lamento. Lorsqu'il constate la répétition des
 situations dans *Die Hard 2*, il fait plus qu'instaurer un processus métanarratif : il montre par là qu'il n'est pas auteur de son action, qu'il est plus agi qu'actant. C'est un aspect qui rappelle une fois encore le burlesque, telle que Fabrice Revault d'Allones le définit :
 
->> l'homme du cinéma burlesque est foncièrement un être urbanisé du XX<sup>e</sup>
-siècle, un homme pressé ou que l'on presse, débitant à haut régime des
-objets, des lieux, des corps, des situations, des actes, des
-gestes[^326].
+>> l'homme du cinéma burlesque est foncièrement un être urbanisé du XX<sup>e</sup> siècle, un homme pressé ou que l'on presse, débitant à haut régime des objets, des lieux, des corps, des situations, des actes, des gestes[^326].
 
 Notons également ce commentaire de Jean-Louis Schefer, qui complète ce
 point de vue :
 
->> Il est constant que les aventures burlesques ne touchent pas le
-développement d'une histoire et n'atteignent que la "figure" des
-personnages. Ce ne sont pas des dieux, rien ne laisse soupçonner sur
-leurs faces ou leurs vêtements mal ajustés la souveraineté des grands
-acteurs du film noir : ils sont soumis à un destin (réductible à une
-séquence d'action) qui les transforme, les dévêt, les salit, ne les
-idéalise jamais, sans les faire avancer d'un pouce dans leur
-histoire[^327].
+>> Il est constant que les aventures burlesques ne touchent pas le développement d'une histoire et n'atteignent que la "figure" des personnages. Ce ne sont pas des dieux, rien ne laisse soupçonner sur leurs faces ou leurs vêtements mal ajustés la souveraineté des grands
+acteurs du film noir : ils sont soumis à un destin (réductible à une séquence d'action) qui les transforme, les dévêt, les salit, ne les idéalise jamais, sans les faire avancer d'un pouce dans leur histoire[^327].
 
 Comme pour le personnage burlesque, le héros d'action, bien que héroïque, ne semble avoir d'autre destin que celui auquel son corps, heurté à l'espace, le destine. Les deux genres se fondent sur un espace qui réclame la catastrophe, et des corps contraints à la passivité en
 même temps qu'à l'action - mais être en action ne signifie dans aucun des cas présents être actif. En rappelant également sans cesse qu'il n'a pas envie d'être là, qu'il agit contre son plein gré, McClane instaure un nouveau rapport du héros à son environnement, où la contrainte
@@ -141,7 +132,7 @@ d'héroïsme dans le film d'action : le personnage, conscient de l'existence de 
 ![fig. 24.1](../images/img.chap2/25-DIE_HARD_1-1.jpg)
 ![fig. 24.2](../images/img.chap2/25-DIE_HARD_1-2.jpg)
 
-######fig. 24 : La tour Nakatomi mue en jungle vietnamienne dans* Die Hard*.*
+######fig. 24 : La tour Nakatomi mue en jungle vietnamienne dans* Die Hard*.
 
 Pieds et torse nus, le héros évolue dans ce qui reste d'un jardin d'intérieur, décoré de plantes exotiques et d'une fontaine, par laquelle il doit passer pour sortir de la pièce. Suite aux explosions, les douches écossaises se sont déclenchées, reconstituant une pluie tropicale : car en effet, le décor urbain de la tour Nakatomi s'est mué, visuellement, en une jungle rappelant les décors des films de MIA ou encore le deuxième volet de la franchise *Rambo* (*fig. 24*). L'image affirme sans détour ce que le langage n'impose qu'au détour de l'ironie : McClane est bien un héros, qui tient aussi bien de John Wayne que de Rambo. Et tant pis si les ennemis sont conscients du drame qui se rejoue, qu'il s'agisse d'un Gruber cultivé, ou d'un cruel agent du FBI, qui, ravi d'embarquer dans un hélicoptère, éructe : "*Comme au bon vieux temps de Saigon*[^333]" en donnant l'assaut. Là où les méchants pratiquent allègrement la référence, McClane, lui, semble emporté par elle, au point de revivre ce qui apparaît comme la scène d'un autre film, alors même que le contexte du récit semblait l'interdire. À la différence des vigilantes qui portent le legs du *westerner* comme un poids, le héros d'action défini par Bruce Willis dans *Die Hard* compose avec aisance avec la référentialité, de manière distanciée. La référence est donc double : directe, quand elle se produit dans les dialogues, discrète, sur le mode de la contamination, lorsqu'elle envahit l'image. Elle permet le succès du héros, et ne le hante plus comme un modèle inatteignable, et permet même de compenser les défaites du corps, sans cesse soumis à de nouvelles pressions. Nous reviendrons sur les questions d'héritage ultérieurement, mais nous avons vu ici qu'elles pouvaient tempérer une définition critique du corps. Nous allons à présent, pour sortir du cadre seul de la série *Die Hard*, envisager la forme à présent le schéma de la ligne droite, un autre motif directionnel cette fois manifeste sur le pan de la narration.
 
@@ -223,7 +214,7 @@ Au début du film, Kimble apparaît avec une barbe fournie, ce qui rompt avec l'
 ![fig. 27.9](https://photos-3.dropbox.com/t/2/AAA5l3amLPKoatNa9pIjVAOB-AnYt3lSJwRREdzEd6JtXw/12/38888477/png/32x32/1/_/1/2/kimble_transforms_10.png/EJi00h0YnfYTIAIoAg/Hh9NfusGxWsnmP7VZYCIgKZej1ppS7-1pVsvETjtBpI?dl=0&size=2048x1536&size_mode=3)
 ![fig. 27.10](https://photos-1.dropbox.com/t/2/AACzSEhNwhoAoqbt7oGlec0425klgbB2A1AwM6XwkIEqEA/12/38888477/png/32x32/1/_/1/2/kimble_transforms_11.png/EJi00h0YnfYTIAIoAg/41bG8I5oky-eIUIAW5kSIjIAD_PAKHmw6Rwr-zWfhtg?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 27 : Le docteur Kimble multiplie les identités d'emprunt pour cacher son évasion. Lorsqu'il se rase pour parfaire son déguisement, c'est l'acteur Harrison Ford qui tombe le masque (*The Fugitive*).*
+######fig. 27 : Le docteur Kimble multiplie les identités d'emprunt pour cacher son évasion. Lorsqu'il se rase pour parfaire son déguisement, c'est l'acteur Harrison Ford qui tombe le masque (*The Fugitive*).
 
 Alors que le personnage se déguise, le héros, par l'entremise de l'acteur, tombe le masque. La barbe n'est pas seulement un masque, mais aussi un signe : elle témoigne d'une masculinité plus sauvage, d'un endurcissement du héros face à son expérience de la prison[^349].
 
@@ -278,7 +269,7 @@ un prisonnier en cavale dont le spectateur ne voit pas le visage puisque les pre
 ![fig. 29.1](https://photos-6.dropbox.com/t/2/AAD0B3-1qc9A2jD-uS2JnhWpAb1HXV8x8saH-V9l8DX3EQ/12/38888477/png/32x32/1/_/1/2/DARKPASSAGE_03.png/EJi00h0Yv_YTIAIoAg/jaR3-yU8BnX0yDcE4n39qgC-7qTpenWmivQD-zUlAmc?dl=0&size=2048x1536&size_mode=3)
 ![fig. 29.2](https://photos-3.dropbox.com/t/2/AAA7ZRAGr4f6AGNEYs82UmV6AUqNbEdPrr2yfKgzDI-XMw/12/38888477/png/32x32/1/_/1/2/DARKPASSAGE_04.png/EJi00h0Yv_YTIAIoAg/DojSKXN4-O-rIX4awCglknMmHpUwml_R0WZhY_YbOLA?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 29 : L'identité d'Humphrey Bogart est déconstruite dans *Dark Passage*, et sa reconstruction permet de renouer avec l'héroïsme associé à la persona de l'acteur.*
+######fig. 29 : L'identité d'Humphrey Bogart est déconstruite dans *Dark Passage*, et sa reconstruction permet de renouer avec l'héroïsme associé à la persona de l'acteur.
 
 Lorsque Vincent découvre sa nouvelle apparence, la présence de Bogart, déjà préparée par le son, est complétement rendue au spectateur, selon des modalités qui rappellent la transformation de Harrison Ford dans *The Fugitive*. Pour apparaître dans sa pleine mesure, l'acteur est momentanément absentéisé, évidé. Pour ce faire, il est coupé en deux, entre son image et sa voix (les deux signifiants puissants de sa persona). La voix existe d'abord sans visage, puis le visage apparaît progressivement - le spectateur reconnaît les yeux de Bogart sous le bandage - mais de manière muette. C'est au point significatif de l'heure écoulée (en anglais, the *one hour mark*) que l'acteur semble enfin recomposé, prêt à faire preuve de la sagacité et de l'élégance que le spectateur lui attribue (*fig. 29.2*).
 
@@ -330,7 +321,7 @@ retour ne tient pas uniquement de la réminiscence, d'un voyage symbolique dans 
 ![fig. 30.7](https://photos-3.dropbox.com/t/2/AAC0So-A4MBCDvQgclscVZ5PumtqyP16Cjmq5xbVctvxJQ/12/38888477/jpeg/32x32/1/_/1/2/THE_BOURNE_IDENTITY-25.jpg/EJi00h0YwfYTIAIoAg/RMTNLZ_wh3Yb3Gy3HcltQxo-vHTTUWPvOS8Yn10u2s8?dl=0&size=2048x1536&size_mode=3)
 ![fig. 30.8](https://photos-6.dropbox.com/t/2/AACKXzJSRrnJAuUerfw00rn2qA9XBQ4jVfkqJQPJrwgQoA/12/38888477/jpeg/32x32/1/_/1/2/THE_BOURNE_IDENTITY-26.jpg/EJi00h0YwfYTIAIoAg/jno6uhsnmet9J18CREqGJu49jD1pIz3HgfPT8_Eq4Fs?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 30 : Le feuilletage de l'identité dans* The Bourne Identity*.*
+######fig. 30 : Le feuilletage de l'identité dans* The Bourne Identity*.
 
 Visuellement, ce thème de l'identité comme compilation de fragments d'information est obsédant dans les trois films. L'habillage du film voit même se déployer les indications de temps et d'heure[^358] de façon ostentatoire, par une animation graphique et typographique où les
 lettres composant les mots apparaissent dans le désordre, accompagnés de cadres, cibles, et autres éléments suggérant la complexité et la capillarité de l'information. Les bandeaux sur lesquels passent des lettres, dont seules certaines s'éclaircissent pour former un mot,
@@ -350,7 +341,7 @@ Bourne prend alors une existence d'emblème, qui se résume à son buste multipl
 ![fig. 31.5](https://photos-1.dropbox.com/t/2/AAC22T98zyUaDMoqeAuy6FwzuHOypGnKV2_HlHvjMWI8CQ/12/38888477/png/32x32/1/_/1/2/neo_reborn_06.png/EJi00h0YwfYTIAIoAg/ZM7ZriDDURfBxT_Q-cxKpJ0aylT2lcG9GoCZWQkEq9U?dl=0&size=2048x1536&size_mode=3)
 ![fig. 31.6](https://photos-1.dropbox.com/t/2/AADAYq-7R39m5EzrQzuvvDRyERbbC40oSDj1AmZAnkq7Kw/12/38888477/png/32x32/1/_/1/2/neo_reborn_07.png/EJi00h0YwfYTIAIoAg/wv3pdqGiHbFUzaRWy3e0lNZMUfDQPTaA0IBjhxAwzwU?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 31 : Dans* The Matrix*, Neo sort d'une réalité suggérée et récupère ainsi un corps neuf.*
+######fig. 31 : Dans* The Matrix*, Neo sort d'une réalité suggérée et récupère ainsi un corps neuf.
 
 Là où Bourne, privé de mémoire mentale, ne peut compter que sur la mémoire du corps, Neo commence son trajet héroïque en changeant de corps. L'apprentissage, séquence canonique de bien des films d'action (surtout les films d'arts martiaux) prend ici un sens nouveau : ce corps neuf doit réapprendre à se mouvoir, mais selon des règles différentes. En effet, la Matrice n'étant qu'un simulacre, le corps peut y accomplir tout ce que l'esprit lui permet. Le corps nouveau et atrophié de Neo qui reste dans le monde dévasté lui permet cependant de maîtriser l'avatar tout puissant qui retourne dans la Matrice pour s'y mouvoir, libre de la gravité. Les deux exemples permettent de mesurer le chemin parcouru depuis *Die Hard.* Dans les années 2000, le film d'action évolue toujours autour de la catastrophe, mais celle-ci ne balaie plus seulement l'espace urbain. Le principe de la *tabula rasa* s'applique au héros lui-même, de façon encore plus radicale que dans *Total Recall* : ainsi la mémoire de Bourne et le corps de Neo sont complètement effacés, pour mieux être reconstruits. Cette reconstruction, après le désastre, constitue alors le programme héroïque. Ce principe de table rase n'est d'ailleurs plus matériel, comme cela était clairement marqué par la forme de l'explosion. L'effacement devient numérique : puisque l'identité (Bourne) et le corps (*Matrix*) sont des données, ils peuvent être liquidés sans trace, comme un disque dur que l'on formate. Le défilement du corps, principe de la poursuite, se double d'ailleurs dans les deux films du défilement constant de la donnée : ce sont les informations à la surface de l'écran dans *Jason Bourne*, ou le code informatique de la Matrice dans *Matrix*. La course suppose ici que du corps, ou de l'identité, quelque chose à été perdu : mais cette perte est un effacement, un retour à zéro qui multiplie les possibilités pour le héros, devenu le site de la catastrophe, la géographie frappée d'une purge.
 
