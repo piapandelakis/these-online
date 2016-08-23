@@ -24,7 +24,7 @@ Il faut également préciser que "geek" répond parfois d'une formulation moins 
 connaissance pointue, sinon obsessionnelle, de son sujet[^555]. Le terme renvoie ici à un haut degré de spécialisation, et plus seulement aux cultures de niche de la cybernétique et du jeu de rôle. Au cours de notre analyse, nous ne reviendrons plus sur ces particularités :
 laissant l'ambigu "geek", nous conserverons le mot "nerd", en l'associant très précisément à la figure adolescente, boutonneuse, du bon élève ou de l'étudiant martyrisé.
 
-######fig. 83 : Le nerd est une figure ancienne, récurrente, présentant une masculinité inadéquate. Des visuels supplémentaires sont visibles dans les annexes.
+######fig. 83 : Le nerd est une figure ancienne, récurrente, présentant une masculinité inadéquate. Des visuels supplémentaires sont visibles dans les [annexes](../annexes.md).
 
 ![fig. 83.1](https://photos-4.dropbox.com/t/2/AACvJa-lvT4gRwCeuRzLfMlDXxAKSFGp1dr0Upba9BrURw/12/38888477/png/32x32/1/_/1/2/70B_bigsleep06.png/EJi00h0Ys_gTIAIoAg/xBrb5PpQOx02y7pHXVcIFVTFdB-SYt_8ETqMJV3f_y4?dl=0&size=2048x1536&size_mode=3)
 ![fig. 83.2](https://photos-1.dropbox.com/t/2/AAALgxySBsvyzEtKlSKqSKfH2ZXR2AiMyYzUZvq3npHcig/12/38888477/png/32x32/1/_/1/2/74_THTSMYBOY_01.png/EJi00h0Ys_gTIAIoAg/sgpc7HwWQE4bAGxv3f7xi2BgzWssmfHc3EXcLr2zrwQ?dl=0&size=2048x1536&size_mode=3)
@@ -35,7 +35,7 @@ laissant l'ambigu "geek", nous conserverons le mot "nerd", en l'associant très 
 
 ![fig. 83.3](https://photos-1.dropbox.com/t/2/AABDKaUwKk2qHU4HZh6MASsnkES8ncIYOOu2KMZu4RESeQ/12/38888477/png/32x32/1/_/1/2/70B_christine.png/EJi00h0YtPgTIAIoAg/x2_Z82iiIETr5rfSs2I0bTar4gLr9vgqs2PCU3xb394?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 83.3 : Arnie a du mal à s'imposer face aux* bullies *de sa classe dans* Christine*.*
+######fig. 83.3 : Arnie a du mal à s'imposer face aux* bullies *de sa classe dans* Christine*.
 
 Le stéréotype du nerd se fait parfois très précis et appelle, pour peu que l'on soit familier avec la culture américaine, une caractérisation particulière en termes d'image : un corps maigre ou, fait plus rare, trop gros ; le visage boutonneux affublé de lunettes, une chevelure
 grasse, des vêtements démodés ou mal ajustés (*fig. 83*). Cette visibilité n'est pas fixe, car tous ces éléments peuvent être dissociés et recombinés entre eux, et c'est ici que le travail de classement se heurte, une fois encore, au même problème que l'étude générique, tendue
