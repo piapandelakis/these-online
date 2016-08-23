@@ -417,8 +417,7 @@ ___
 
 [^564]: *Nulle* *Part Ailleurs*, création : Alain de Greef, France, 1987-2001 (Canal +).
 
-[^565]: *Les* *petites annonces d'Élie*, création : Élie Semoun, France,
-    depuis 1998 (vidéo).
+[^565]: *Les* *petites annonces d'Élie*, création : Élie Semoun, France, depuis 1998 (vidéo).
 
 [^566]: MULLER-KROEL Monica, As Nerdy As It Gets In Berlin. National Public Radio \[ en ligne \]. 16 décembre 2009.
 
