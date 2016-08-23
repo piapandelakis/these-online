@@ -16,11 +16,11 @@ FRYE Northrop. *Anatomie de la critique*. Paris : Gallimard, 1969, 454 p. (Tradu
 
 ARNAUD Philippe. *Les paupières du visible*. Crisnée : Yellow Now, 2001, 246 p. (Côté Cinéma)
 
-BAZIN André. *Qu'est-ce que le cinéma ?* 14^e^ éd. Paris : Éditions du Cerf, 2002, 372 p.
+BAZIN André. *Qu'est-ce que le cinéma ?* 14<sup>e</sup> éd. Paris : Éditions du Cerf, 2002, 372 p.
 
-BONITZER Pascal. *Le champ aveugle. Essai sur le réalisme au cinéma*. 2^e^ éd. Paris : Cahiers du Cinéma, 1999, 109 p.
+BONITZER Pascal. *Le champ aveugle. Essai sur le réalisme au cinéma*. 2<sup>e</sup> éd. Paris : Cahiers du Cinéma, 1999, 109 p.
 
-BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5^e^ éd. New York, Oxford : Oxford University Press, 1999, 861 p.
+BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5<sup>e</sup> éd. New York, Oxford : Oxford University Press, 1999, 861 p.
 
 CLAIR René. *Cinéma d’hier, cinéma d’aujourd’hui*. Paris : Gallimard, 1970, 372 p.
 
@@ -34,7 +34,7 @@ DELEUZE Gilles. *Cinéma : I. L'image mouvement*. Paris : Éditions de Minuit, 1
 
 GRANT Barry Keith (dir.). *Britton on Film. The Complete Film Criticism of Andrew Britton*. Detroit : Wayne State University Press, 2009, 533 p.
 
-KRACAUER Siegfried. "The Establishment of Physical Existence". In : BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5^e^ éd. New York, Oxford : Oxford University Press, 1999, p. 293-303.
+KRACAUER Siegfried. "The Establishment of Physical Existence". In : BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5<sup>e</sup> éd. New York, Oxford : Oxford University Press, 1999, p. 293-303.
 
 MITRY Jean. *Dictionnaire du cinéma*. Paris : Larousse, 1963, 328 p.
 
@@ -48,7 +48,7 @@ ANGUS Ian, JHALLY Sut (dir.). *Cultural Politics in Contemporary America*. New Y
 
 BAILEY Beth, FARBER David. *America in the seventies*. Lawrence : University Press of Kansas, 2004, 246 p.
 
-JOHNSON Haynes. *Sleepwalking through History, America in the Reagan Years*. 2^e^ éd. Londres, New York : W. W. Norton, 2003, 525 p.
+JOHNSON Haynes. *Sleepwalking through History, America in the Reagan Years*. 2<sup>e</sup> éd. Londres, New York : W. W. Norton, 2003, 525 p.
 
 "This Aggression Will Not Stand" \[ en ligne \]. New York Times. 1991. Disponible sur : &lt;
 http://www.nytimes.com/1991/03/01/opinion/this-aggression-will-not-stand.html?pagewanted=2src=pm&gt; (consulté le 13.07.2012).
@@ -69,11 +69,11 @@ VERNANT Jean-Pierre. *L'univers, les dieux, les hommes : Récits grecs des origi
 
 -   Dictionnaires et ouvrages généraux
 
-BRUNET François, McCAVANA Declan. *Dictionnaire bilingue de l'argot d'aujourd'hui*. 2^e^ éd. Paris : Pocket, 1996, 688 p. (Langues pour tous)
+BRUNET François, McCAVANA Declan. *Dictionnaire bilingue de l'argot d'aujourd'hui*. 2<sup>e</sup> éd. Paris : Pocket, 1996, 688 p. (Langues pour tous)
 
 HARPER Douglas. *The Online Etymology Dictionary* \[ en ligne \] 2001-2012. Disponible sur : &lt;http://www.etymonline.com&gt;
 
-SIMPSON J. A., WEINER E. S. C. *The English Oxford Dictionary*. 2^e^ éd. Oxford : Clarendon Press, 1991, 20 volumes.
+SIMPSON J. A., WEINER E. S. C. *The English Oxford Dictionary*. 2<sup>e</sup> éd. Oxford : Clarendon Press, 1991, 20 volumes.
 
 SPEARS Richard A. *McGraw-Hill's Essential American Slang*. Chicago : McGraw-Hill, 2008, 255 p.
 
@@ -117,7 +117,7 @@ ELSAESSER Thomas (dir.). *Early Cinema: Space, Frame, Narrative*. Londres : BFI 
 
 GUNNING Tom. "The Cinema of Attractions: Early Film, Its Spectator and the Avant-Garde". In : ELSAESSER Thomas (dir.). *Early Cinema: Space, Frame, Narrative*. Londres : BFI Publishing, 1990, p. 56-62.
 
-LINDSAY Vachel. *De la caverne à la pyramide (Ecrits sur le cinéma 1914-1925)*. 2^e^ éd. Paris : Klincksieck, 2012, 344 p. (Traduction de l'américain par Marc Chénetier)
+LINDSAY Vachel. *De la caverne à la pyramide (Ecrits sur le cinéma 1914-1925)*. 2<sup>e</sup> éd. Paris : Klincksieck, 2012, 344 p. (Traduction de l'américain par Marc Chénetier)
 
 SINGER Ben. " 'Child of Commerce! Bastard of Art!'. Early Film Melodrama". In : TASKER Yvonne (dir.), *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 52-70.
 
@@ -212,7 +212,7 @@ FLANAGAN Martin. " 'Get Ready for Rush Hour' The Chronotope in Action". In : TAS
 
 GEHRING Wes D. *Handbook of American Film Genres*. Westport : Greenwood Press, 1988, 405 p.
 
-MOINE Raphaëlle. *Les genres du cinéma*. 2^e^ éd. Paris : Armand Colin, 2005, 192 p.
+MOINE Raphaëlle. *Les genres du cinéma*. 2<sup>e</sup> éd. Paris : Armand Colin, 2005, 192 p.
 
 NEALE Steve. *Genre and Hollywood*. Londres, New York : Routledge, 2000, 336 p.
 
@@ -228,7 +228,7 @@ TUDOR Andrew. "Genre". In : GRANT Barry Keith (dir.). *Film Genre Reader II*. Au
 
 VALMARY Hélène. "I'll be back". In : FOREST Claude (dir.) *Du héros aux super héros. Mutations Cinématographiques*. Paris : Presses de la Sorbonne Nouvelle. 2009. p.143-155. (Théorème n°13)
 
-WOOD Robin. "Ideology, Genre, Auteur". In : BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5^e^ éd. New York, Oxford : Oxford University Press, 1999, p. 668-678.
+WOOD Robin. "Ideology, Genre, Auteur". In : BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5<sup>e</sup> éd. New York, Oxford : Oxford University Press, 1999, p. 668-678.
 
 -   Genres spécifiques
 
@@ -238,7 +238,7 @@ BOURTON William. *Le western : une histoire parallèle des États-Unis*. Paris :
 
 CAMERON Ian, PYE Douglas. *The Book of Westerns*. New York : Continuum, 1996, 320 p.
 
-CAWELTI John G. *The Six-Gun Mystique*. 2^e^ éd. Bowling Green : Bowling Green State University Popular Press, 1984, 155 p.
+CAWELTI John G. *The Six-Gun Mystique*. 2<sup>e</sup> éd. Bowling Green : Bowling Green State University Popular Press, 1984, 155 p.
 
 CORKIN Stanley. Cowboys and Free Markets: Post World War II Westerns and U.S Hegemony. *Cinema Journal*, 2000, vol.39, n°3, p. 66-91.
 
@@ -247,7 +247,7 @@ p. 3-24.
 
 FARNSWORTH Rodney. John Wayne's Epic of Contradictions: The Aesthetic and Rhetoric of War and Diversity in "The Alamo". *Film Quarterly*, hiver 1998-1999, vol.52, n°2, p. 24-34.
 
-FRENCH Philip. *Westerns*. 2^e^ éd. Londres : Secker & Warburg, 1977, 208 p.
+FRENCH Philip. *Westerns*. 2<sup>e</sup> éd. Londres : Secker & Warburg, 1977, 208 p.
 
 GALLAFENT Edward. "Not With a Bang: The End of the West in Lonely are the Brave, The Misfits and Hud". In : CAMERON Ian, PYE Douglas. *The Book of Westerns*. New York : Continuum, 1996, p. 241-254.
 
@@ -335,7 +335,7 @@ KLEIN Christina. Why American Studies Needs to Think about Korean Cinema, or, Tr
 
 KASPROWICZ Laurent. "La réception française de *Rambo II* et *Rocky IV* : et si ce n'était pas des films de propagande ?". In : GIMELLO-MESPLOMB Frédéric (dir.). *Le cinéma des années Reagan, un modèle hollywoodien ?* Paris : Nouveau Monde Éditions, 2007, p. 277-295.
 
-LICHTENFELD Eric. *Action Speaks Louder. Violence, Spectacle, and the American Movie*. 2^e^ éd. Middletown : Wesleyan University Press, 2007, 383 p.
+LICHTENFELD Eric. *Action Speaks Louder. Violence, Spectacle, and the American Movie*. 2<sup>e</sup> éd. Middletown : Wesleyan University Press, 2007, 383 p.
 
 MARSHALL Julius. *The Action Movie A-Z*. Londres : Batsford, 1996, 240 p.
 
@@ -433,7 +433,7 @@ WOLF Mark J. P. "A Brief History of Morphing". In : SOBCHACK Vivian (dir.). *Met
 
 ### Le héros : généralités 
 
-CAMPBELL Joseph. *The Hero With a Thousand Faces*. 3^e^ éd. Princeton : Princeton University Press, 1973, 416 p.
+CAMPBELL Joseph. *The Hero With a Thousand Faces*. 3<sup>e</sup> éd. Princeton : Princeton University Press, 1973, 416 p.
 
 Exposition *Héros d'Achille à Zidane*, Bibliothèque Nationale de France, Site François-Mitterrand (Paris), Commissariat : Odile Faliu, du 9 octobre 2007 au 13 avril 2008.
 
@@ -459,7 +459,7 @@ FAUVET Pascale. "Le héros reaganien ou l'expression d'un mythe du "rêve améri
 
 JENSEN Jeff. Heroes & Villains. *Entertainment Weekly*, 3 avril 2009, n°1041, p. 31-33.
 
-KRÁL Petr. *Le burlesque ou la morale de la tarte à la crème*. 2^e^ éd. Paris : Ramsey, 2007, 367 p.
+KRÁL Petr. *Le burlesque ou la morale de la tarte à la crème*. 2<sup>e</sup> éd. Paris : Ramsey, 2007, 367 p.
 
 "Un pont Chuck Norris en Slovaquie ?" \[ en ligne \]. Dépêche de l'agence Reuters, publiée par lefigaro.fr. 24 février 2012. Disponible sur : &lt;
 http://www.lefigaro.fr/flash-actu/2012/02/24/97001-20120224FILWWW00305-un-pont-chuck-norris-en-slovaquie.php&gt; (consulté le 15.05.2012).
@@ -578,7 +578,7 @@ KAZECKI Jakub. "What Makes a Man, Mr. Lebowski?": Masculinity Under (Friendly) F
 
 MARTIN Paul. RENEGAR Valerie R. The Man for His Time" *The Big Lebowski* as Carnivalesque Social Critique. *Communication Studies*, septembre 2007, vol.58, n°3, p. 299-313.
 
-PEKAR Harvey. *Anthologie American Splendor. Volume 1*. 2^e^ éd. Bussy-Saint-Georges : Ça et là, 2009, 192 p.
+PEKAR Harvey. *Anthologie American Splendor. Volume 1*. 2<sup>e</sup> éd. Bussy-Saint-Georges : Ça et là, 2009, 192 p.
 
 ### Femmes d'action / *Action babes* 
 
@@ -687,9 +687,9 @@ BENALLAL Mehdi, BERTHOMIEU Pierre, CIEUTAT Michel, DAHAN Yannick, VIVIANI Christ
 
 DIXON Simon. Ambiguous Ecologies : Stardom's Domestic Mise-en-Scène. *Cinema Journal*, hiver 2003, vol.42, n°2, p. 81-100.
 
-DYER Richard. *Stars*. 2^e^ éd. Londres : BFI Publishing, 1998, 217 p.
+DYER Richard. *Stars*. 2<sup>e</sup> éd. Londres : BFI Publishing, 1998, 217 p.
 
-McDONALD Paul. "Reconceptualizing Stardom". In : DYER Richard. *Stars*. 2^e^ éd. Londres : BFI Publishing, 1998, p. 175-211.
+McDONALD Paul. "Reconceptualizing Stardom". In : DYER Richard. *Stars*. 2<sup>e</sup> éd. Londres : BFI Publishing, 1998, p. 175-211.
 
 -   Études consacrées à Arnold Schwarzenegger
 
@@ -719,7 +719,7 @@ CAUGHIE John, KUHN Annette. *The Sexual Subject. A Screen Reader in Sexuality*. 
 
 CLOVER Carol J. *Men, Women and Chain Saws. Gender in the Modern Horror Film*. Princeton : Princeton University Press, 1992, 260 p.
 
-CONNELL R. W. *Masculinities*. 2^e^ éd. Cambridge : Polity Press, 1995, 324 p.
+CONNELL R. W. *Masculinities*. 2<sup>e</sup> éd. Cambridge : Polity Press, 1995, 324 p.
 
 CONNELL R.W., HEARN Jeff, KIMMEL Michael S. *Handbook of Studies on Men and Masculinities*. Thousand Oaks : Sage Publications, 2005, 505 p.
 
@@ -747,7 +747,7 @@ GREEN Ian. Malefunction. A Contribution to the Debate on Masculinity in the Cine
 
 GREVEN David. Contemporary Hollywood Masculinity and the Double-Protagonist Film. *Cinema Journal*, été 2009, vol.48, n°4, p. 22-43.
 
-JEFFORDS Susan. *Hard Bodies: Hollywood Masculinity in the Reagan Era*. 2^e^ éd. New Brunswick : Rutgers University Press, 2004, 224 p.
+JEFFORDS Susan. *Hard Bodies: Hollywood Masculinity in the Reagan Era*. 2<sup>e</sup> éd. New Brunswick : Rutgers University Press, 2004, 224 p.
 
 JEFFORDS Susan. "The Big Switch: Hollywood Masculinity in the Nineties". In : COLLINS Jim, RADNER Hillary, PREACHER COLLINS Ava. *Film Theory Goes to the Movies*. New York, Londres : Routledge, 1993, p. 196-208.
 
@@ -771,7 +771,7 @@ DOANE Mary Ann. Film and the Masquerade: Theorizing the Female Spectator. *Scree
 
 MULVEY Laura. Visual Pleasure and Narrative Cinema. *Screen*, automne 1975, vol.16, n°3, p. 6-18.
 
-MULVEY Laura. *Visual and Other Pleasures*. 2^e^ éd. Houndmills, New York : Palgrave McMillan, 2009, 232 p.
+MULVEY Laura. *Visual and Other Pleasures*. 2<sup>e</sup> éd. Houndmills, New York : Palgrave McMillan, 2009, 232 p.
 
 NEGRA Diane, TASKER Yvonne (dir.). *Interrogating Postfeminism. Gender and the Politics of Popular Culture*. Durham : Duke University Press, 2007, 344 p.
 
@@ -783,7 +783,7 @@ BELTRAN Mary C. The New Hollywood Racelessness: Only the Fast, Furious, (and Mul
 
 BOGLE Donald. Toms, Coons, Mulattoes, Mammies and Bucks. An Interpretive History of Blacks in American Films. New York, Londres : Continumm. 2003, 454 p.
 
-HILL COLLINS Patricia. *Black Feminist Thought: Knowledge, Consciousness, and the Politics of Empowerment*. 2^e^ éd. New York, Londres : Routledge, 2000, 336 p.
+HILL COLLINS Patricia. *Black Feminist Thought: Knowledge, Consciousness, and the Politics of Empowerment*. 2<sup>e</sup> éd. New York, Londres : Routledge, 2000, 336 p.
 
 ROGIN Michael. *Blackface, White Noise. Jewish Immigrants in the Hollywood Melting Pot*. Berkeley, Londres, Los Angeles : University of California Press, 1996, 339 p.
 
