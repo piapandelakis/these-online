@@ -1,4 +1,4 @@
-#3. Corps et décors
+<sup>e</sup>#3. Corps et décors
 
 ##3.1 Le super-héros dans la ville
 
@@ -45,7 +45,7 @@ se sont inscrits. L'apparition de Superman est contemporaine de la crise financi
 
 ######fig. 127 : Les récits de super-héros cotoient l'utopie urbaine, souvent concrétisée dans le fantasme d'une ligne de métro aérien centrale, comme l'artère démesurée d'un ensemble vivant. (dans *Batman Begins* et *Spider-Man 2*).
 
-Ces grands projets d'architecture sont plus largement contemporains d'un mouvement de planification urbaine, incarné notamment par Robert Moses qui souhaitait "nettoyer" les *slums* (taudis) new-yorkais et à les remplacer par des systèmes d'habitation rationnels. Tandis que les villes changent, leur représentation évolue également : culturellement parlant, la radio et les journaux sont les deux médias proéminents de ce début du XX^e^ siècle ; ils participent à l'accélération des modes de vies et à la construction d'une mythologie de la vie urbaine, dont les affres sont par exemple décrites dans le *U.S.A* de John Passos.
+Ces grands projets d'architecture sont plus largement contemporains d'un mouvement de planification urbaine, incarné notamment par Robert Moses qui souhaitait "nettoyer" les *slums* (taudis) new-yorkais et à les remplacer par des systèmes d'habitation rationnels. Tandis que les villes changent, leur représentation évolue également : culturellement parlant, la radio et les journaux sont les deux médias proéminents de ce début du XX<sup>e</sup> siècle ; ils participent à l'accélération des modes de vies et à la construction d'une mythologie de la vie urbaine, dont les affres sont par exemple décrites dans le *U.S.A* de John Passos.
 
 La crise de 1929 et la croissance urbaine sont donc les deux pôles autour desquels s'articule la modernité américaine au début du XX^e^ siècle. La ville mise en image par le comic book exprime à la fois l'enthousiasme moderniste pour la cité mécanique, sculpturale et
 organique, tout en exprimant les angoisses du "*common man*" face à l'implacabilité du mode de vie urbain (l'anonymat, la violence des rapports interpersonnels, etc). Plus largement, les récits de super-héros se font l'écho, à partir des années 30, du développement d'un mode de vie urbain caractérisé par une iconographie particulière : les buildings, mais aussi les ruelles, le métro lancé à vive allure à travers la cité sont omniprésents tandis que la presse apparaît comme ayant un rôle crucial, en phase avec le rythme effréné de la cité.
