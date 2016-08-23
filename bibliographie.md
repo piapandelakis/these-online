@@ -12,6 +12,7 @@
 
 **FRYE Northrop**. *Anatomie de la critique*. Paris : Gallimard, 1969, 454 p. (Traduction de l'anglais par Guy Durand)
 
+
 -   Le cinéma : généralités, méthodologies
 
 **ARNAUD Philippe**. *Les paupières du visible*. Crisnée : Yellow Now, 2001, 246 p. (Côté Cinéma)
@@ -42,6 +43,7 @@
 
 **TURNER Graeme (dir.)**. *The Film Cultures Reader*. Londres, New York : Routledge, 2002, 524 p.
 
+
 -   Histoire des États-Unis
 
 **ANGUS Ian, JHALLY Sut (dir.)**. *Cultural Politics in Contemporary America*. New York, Londres : Routledge, 1989, 388 p.
@@ -52,6 +54,7 @@
 
 "This Aggression Will Not Stand" \[ en ligne \]. New York Times. 1991. Disponible sur : &lt;
 http://www.nytimes.com/1991/03/01/opinion/this-aggression-will-not-stand.html?pagewanted=2src=pm&gt; (consulté le 13.07.2012).
+
 
 -   Clichés, stéréotypes, mythes
 
@@ -66,6 +69,7 @@ http://www.nytimes.com/1991/03/01/opinion/this-aggression-will-not-stand.html?pa
 **ROGER Philippe**. *L'ennemi américain*. Paris : Seuil, 2002, 601 p.
 
 **VERNANT Jean-Pierre**. *L'univers, les dieux, les hommes : Récits grecs des origines*. Paris : Seuil, 1999, 244 p.
+
 
 -   Dictionnaires et ouvrages généraux
 
@@ -95,6 +99,7 @@ sur : &lt;http://www.lerobert.com/&gt;
 
 ##Le cinéma américain
 
+
 -   Hollywood
 
 **BERTHOMIEU Pierre**. *Le cinéma Hollywoodien. Le temps du renouveau*. Paris : Armand Colin, 2005, 127 p.
@@ -109,9 +114,10 @@ sur : &lt;http://www.lerobert.com/&gt;
 
 **WOOD Michael**. *America in the Movies: or, "Santa Maria, It had slipped my mind".* New York : Columbia University Press, 1975, 206 p.
 
+
 -   Périodes
 
-### Cinéma des premiers temps 
+#### Cinéma des premiers temps 
 
 **ELSAESSER Thomas (dir.)**. *Early Cinema: Space, Frame, Narrative*. Londres : BFI Publishing, 1990, 424 p.
 
@@ -121,7 +127,8 @@ sur : &lt;http://www.lerobert.com/&gt;
 
 **SINGER Ben**. " 'Child of Commerce! Bastard of Art!'. Early Film Melodrama". In : TASKER Yvonne (dir.), *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 52-70.
 
-### Années 70 
+
+#### Années 70 
 
 **BISKIND Peter**. Easy Riders, Raging Bulls: How the Sex-Drugs-and-Rock’n’Roll Generation Saved Hollywood. New York : Simon & Schuster, 1998, 506 p.
 
@@ -131,7 +138,8 @@ sur : &lt;http://www.lerobert.com/&gt;
 
 **THORET Jean-Baptiste**. *Le cinéma américain des années 70*. Paris : Cahiers du Cinéma, l'Étoile, 2006, 395 p.
 
-### Années 80 - Années Reagan 
+
+#### Années 80 - Années Reagan 
 
 **BRITTON Andrew**. "Blissing Out: The Politics of Reaganite Entertainment (1986)". In : GRANT Barry Keith (dir.). *Britton on Film. The Complete Film Criticism of Andrew Britton*. Detroit : Wayne State University Press, 2009, p. 97-154.
 
@@ -141,7 +149,8 @@ sur : &lt;http://www.lerobert.com/&gt;
 
 **WOOD Robin**. *Hollywood, from Vietnam to Reagan, and Beyond*. New York : Columbia University Press, 2003, 363 p.
 
-### Autres périodes 
+
+#### Autres périodes 
 
 **HOLMLUND Christine**. *American Cinema of the 1990s. Themes and Variations*. New Brunswick, Londres : Rutgers University Press, 2008, 288 p.
 
@@ -152,6 +161,7 @@ sur : &lt;http://www.lerobert.com/&gt;
 **POLAN Dana**. *Power & Paranoïa*. New York : Columbia University Press, 1986, 336 p.
 
 **SIMON Jacqueline**. *La fêlure dans le cinéma américain dans les années 40 et 50*. Paris, Milan, Barcelone : Masson, 1989, 236 p.
+
 
 -   Esthétique
 
@@ -171,6 +181,7 @@ Cinéma, Gallimard, 1980, 232 p.
 **SHARETT Christopher**. *Mythologies of Violence in Post-Modern Cinema*. Detroit : Wayne State University Press, 1999, 453 p.
 
 **VERNET Marc**. *De l'invisible au cinéma. Figures de l'absence*. Paris : Cahiers du Cinéma, Éditions de l'Étoile, Seuil, 1988, 125 p.
+
 
 -   Réalisateurs
 
@@ -192,7 +203,9 @@ Cinéma, Gallimard, 1980, 232 p.
 
 **KÖRTE Peter, SEESSLEN Georg**. *Joel & Ethan Coen*. Londres : Titan Books, 1999, 288 p. (Traduction de l'allemand par Rory Mulholland)
 
+
 ##La notion de genre
+
 
 -   Études génériques
 
@@ -230,9 +243,10 @@ Cinéma, Gallimard, 1980, 232 p.
 
 **WOOD Robin**. "Ideology, Genre, Auteur". In : BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5<sup>e</sup> éd. New York, Oxford : Oxford University Press, 1999, p. 668-678.
 
+
 -   Genres spécifiques
 
-### 1. Le western 
+#### 1. Le western 
 
 **BOURTON William**. *Le western : une histoire parallèle des États-Unis*. Paris : Presses Universitaires de France, 2008, 345 p.
 
@@ -285,7 +299,8 @@ p. 3-24.
 
 **WRIGHT Will**. *Six Guns and Society, A Structural Study of the Western*. Berkeley, Londres, Los Angeles : University of California Press, 1975, 217 p.
 
-### 2. L'actioner / le film d'action
+
+#### 2. L'actioner / le film d'action
 
 **ARROYO José (dir.)**. *Action/Spectacle Cinema: A Sight and Sound Reader*. Londres : BFI Publishing, 2000, 272 p.
 
@@ -359,7 +374,7 @@ p. 3-24.
 
 **WELSH James M**. "Action Films: The Serious, The Iconic, The Postmodern". In : DIXON Wheeler Winston (dir.). *Film Genre 2000: New Critical Essays*. Albany : State University of New York Press, 2000, p. 161-176.
 
-### 3. Le *youth film* 
+#### 3. Le *youth film* 
 
 **GREVEN David**. Dude, Where Is My Gender? Contemporary Teen Comedies and New Forms of American Masculinities. *Cineaste*, été 2002, vol.27, n°3, p. 14-21.
 
@@ -367,7 +382,7 @@ p. 3-24.
 
 **SHARY Timothy**. *Generation Multiplex : The Image of Youth in Contemporary American Cinema.* Austin : University of Texas Press, 2002, 330 p.
 
-### 4. Autres genres 
+#### 4. Autres genres 
 
 **AKNIN Laurent**. *Le péplum*. Paris : Armand Colin, 2009, 127 p.
 
@@ -393,6 +408,7 @@ p. 3-24.
 
 **YACOWAR Maurice**. "The Bug in the Rug: Notes on the Disaster Genre". In : GRANT Barry Keith (dir.). *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 261-279.
 
+
 -   Le blockbuster (économie & esthétique)
 
 **AUGROS Joël**. "L'économie des studios hollywoodiens dans les années 80". In : GIMELLO-MESPLOMB Frédéric (dir.). *Le cinéma des années Reagan, un modèle hollywoodien ?* Paris : Nouveau Monde Éditions, 2007, p. 31-43.
@@ -410,6 +426,7 @@ p. 3-24.
 **WILLIAMS Rachel**. " 'They Call Me "Action Woman" ', The Marketing of Mimi Leder as a new concept in the high concept 'action' film". In : TASKER Yvonne (dir.). *Action and Adventure Cinema*. Londres et New York : Routledge, 2004, p. 385-397.
 
 **WYATT Justin**. *High Concept. Movies and Marketing in Hollywood*. Austin : University of Texas Press, 1994, 237 p.
+
 
 -   Les effets spéciaux
 
@@ -429,9 +446,10 @@ p. 3-24.
 
 ##Personnages : typologies
 
+
 -   Le héros
 
-### Le héros : généralités 
+#### Le héros : généralités 
 
 **CAMPBELL Joseph**. *The Hero With a Thousand Faces*. 3<sup>e</sup> éd. Princeton : Princeton University Press, 1973, 416 p.
 
@@ -445,7 +463,7 @@ Exposition *Héros d'Achille à Zidane*, Bibliothèque Nationale de France, Site
 
 **PUMPHREY Martin**. "Why do Cowboys wear Hats in the Bath? Style Politics for the Older Man". In : CAMERON Ian, PYE Douglas (dir.)*.* *The Book of Westerns*. New York : Continuum, 1996, p. 50-62.
 
-### Le héros : au cinéma 
+#### Le héros : au cinéma 
 
 **BIGORGNE David (dir.)**. *Le surhomme à l’écran*. Condé-sur-Noireau : Corlet ; Paris : Télérama, 2004, 279 p. (CinémAction)
 
@@ -466,7 +484,7 @@ http://www.lefigaro.fr/flash-actu/2012/02/24/97001-20120224FILWWW00305-un-pont-c
 
 **UNGARO Jean**. *Américains, héros de cinéma*. Paris, Budapest, Torino : L’Harmattan, 2005, 125 p.
 
-### Héros voyants 
+#### Héros voyants 
 
 **COOPER Mark Garrett**. The Contradictions of *Minority Report*. *Film Criticism*, hiver 2003-2004, vol.28, n°2, p. 24-41.
 
@@ -481,6 +499,7 @@ http://www.lefigaro.fr/flash-actu/2012/02/24/97001-20120224FILWWW00305-un-pont-c
 **PIZZELLO Stephen**. Extrasensory Perception. Interview avec M. Night Shyamalan. *American Cinematographer*, décembre 2000, vol. 81, p. 48-57.
 
 **REHM Jean-Pierre**. Le village est-il damné ? *Cahiers du Cinéma*, septembre 2004, n°593, p. 26-28.
+
 
 -   Nerds
 
@@ -537,6 +556,7 @@ http://www.lefigaro.fr/flash-actu/2012/02/24/97001-20120224FILWWW00305-un-pont-c
 &lt;http://www.geekstudies.org/2007/06/geeks-vs-nerds&gt; (consulté le
 17.08.12)
 
+
 -   *Schlemiel*
 
 **AMIEL Vincent**. Les fantômes de Woody Allen. *Positif*, février 1998, n°444, p. 17-18.
@@ -568,9 +588,10 @@ Exposition *De Superman au chat du rabbin*, Musée d'Art et d'Histoire du Judaï
 
 **WISSE Ruth R**. *The Schlemiel as Modern Hero*. Chicago, Londres : University of Chicago Press, 1971, 134 p.
 
+
 -   Autres figures notoires
 
-### Losers 
+#### Losers 
 
 **COMER Todd A**. "This Agression Will Not Stand": Myth, War and Ethics in The Big Lebowski. *Substance* \#107, 2005, vol.34, n°2, p. 98-107.
 
@@ -580,7 +601,8 @@ Exposition *De Superman au chat du rabbin*, Musée d'Art et d'Histoire du Judaï
 
 **PEKAR Harvey**. *Anthologie American Splendor. Volume 1*. 2<sup>e</sup> éd. Bussy-Saint-Georges : Ça et là, 2009, 192 p.
 
-### Femmes d'action / *Action babes* 
+
+#### Femmes d'action / *Action babes* 
 
 **BROWN Jeffrey A**. Gender and the Action Heroine: Hardbodies and the "Point of No Return". *Cinema Journal*, printemps 1996, vol. 35, n°3, p. 52-71.
 
@@ -598,6 +620,7 @@ Exposition *De Superman au chat du rabbin*, Musée d'Art et d'Histoire du Judaï
 
 **WILLIAMS Linda Ruth**. "Ready for action: G.I.Jane, Demi Moore’s body and the female combat movie". In : TASKER Yvonne (dir.). *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 169-185.
 
+
 -   Autres typologies (classes sociales, corps de métiers)
 
 **FRAYLING Christopher**. *Mad, Bad and Dangerous? The Scientist and the Cinema*. Londres : Reaktion Books, 2006, 239 p.
@@ -608,7 +631,9 @@ Exposition *De Superman au chat du rabbin*, Musée d'Art et d'Histoire du Judaï
 
 **MITCHELL Edwards**. "Apes and Essences: Some Sources of Significance in the American Gangster Film". In : GRANT Barry Keith. *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 203-212.
 
+
 ##Le corps
+
 
 -   Le corps au cinéma
 
@@ -638,6 +663,7 @@ Exposition *De Superman au chat du rabbin*, Musée d'Art et d'Histoire du Judaï
 
 **VANCHERI Luc**. *Figuration de l'inhumain. Essai sur le devenir-accessoire de l'homme filmique*. Saint-Denis : Presses Universitaires de Vincennes (PUV), 1993, 144 p.
 
+
 -   Le corps en action
 
 "Italian Stallion is boss: 'Expendables' director Sylvester Stallone made 'taller' for movie's poster" \[ en ligne \]. New York Daily News. 2 août 2010. Disponible sur : &lt;
@@ -654,11 +680,13 @@ http://articles.nydailynews.com/2010-08-02/gossip/27071423\_1\_poster-italian-st
 
 **TASKER Yvonne**. *Spectacular Bodies. Gender, Genre, and the Action Cinema*. Londres, New York : Routledge, 1993, 195 p.
 
+
 -   Le corps comique
 
 **MONGIN Olivier**. *Éclats de rire, Variations sur le corps comique*. Paris : Seuil, 2002, 351 p. (La couleur des idées)
 
 **REVAULT D'ALLONNES Fabrice**. "L'homme burlesque du cinéma". In : AUMONT Jacques (dir.), *L'invention de la figure humaine, Le cinéma : l'humain et l'inhumain*. Paris : Éditions de la Cinémathèque Française, 1995, p. 53-73.
+
 
 -   Le corps musclé, le bodybuilding
 
@@ -677,7 +705,9 @@ http://articles.nydailynews.com/2010-08-02/gossip/27071423\_1\_poster-italian-st
 &lt;http://www.nytimes.com/2010/05/13/fashion/13calvin.html?\_r=1&gt;
 (consulté le 19.07.2012).
 
+
 ##Les acteurs
+
 
 -   Les acteurs : généralités, *star system*
 
@@ -690,6 +720,7 @@ http://articles.nydailynews.com/2010-08-02/gossip/27071423\_1\_poster-italian-st
 **DYER Richard**. *Stars*. 2<sup>e</sup> éd. Londres : BFI Publishing, 1998, 217 p.
 
 **McDONALD Paul**. "Reconceptualizing Stardom". In : DYER Richard. *Stars*. 2<sup>e</sup> éd. Londres : BFI Publishing, 1998, p. 175-211.
+
 
 -   Études consacrées à Arnold Schwarzenegger
 
@@ -708,6 +739,7 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 **ROMNEY Jonathan**. "Arnold Through the Looking Glass". In : ARROYO José (dir.). *Action/Spectacle Cinema: A Sight and Sound Reader.* Londres : BFI Publishing, 2000, p. 34-39.
 
 ##Genres masculins, féminins, identités
+
 
 -   Masculinité et féminité : généralités
 
@@ -732,6 +764,7 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 **SAVRAN David**. *Taking it Like a Man, White Masculinity, Masochism, and Contemporary American Culture*. Princeton : Princeton University Press, 1998, 382 p.
 
 **THEWELEIT Klaus**. *Male Fantasies I. Women, Floods, Bodies, History*. Cambridge : Polity Press, 1987, 517 p.
+
 
 -   Masculinité et féminité au cinéma
 
@@ -759,6 +792,7 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 
 **STUDLAR Gaylyn**. *This Mad Masquerade. Stardom and Masculinity in the Jazz Age*. New York : Columbia University Press, 1996, 320 p.
 
+
 -   Théories féministes / Queer
 
 **BUTLER Judith**. *Gender Trouble: Tenth Anniversary Edition. Feminism and the Subversion of Identity*. New York : Routledge, 2002, 256 p.
@@ -777,6 +811,7 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 
 **REYNAUD Bérénice, VINCENDEAU Ginette (dir.)**. *20 ans de théories féministes sur le cinéma*. Condé-sur-Noireau : Corlet ; Paris : Télérama, 1993, 200 p. (CinémAction)
 
+
 -   Les Afro-Américains
 
 **BELTRAN Mary C**. The New Hollywood Racelessness: Only the Fast, Furious, (and Multiracial) Will Survive. *Cinema Journal*, hiver 2005, vol.44, n°2, p. 50-67.
@@ -791,6 +826,7 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 
 **WIEGMAN Robyn**. "Black Bodies/American Commodities: Gender, Race, and the Bourgeois Ideal Contemporary Film". In : FRIEDMAN Lester D. *Unspeakable Images: Ethnicity and the American Cinema*. Urbana : University of Illinois Press, 1991, p. 308-328.
 
+
 -   Les Juifs
 
 **ERENS Patricia**. *The Jew in American Cinema*. Bloomington : Indiana University Press, 1984, 455 p.
@@ -799,6 +835,7 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 
 **STRATTON Jon**. *Coming Out Jewish: Constructing Amivalent Identities*. Londres, New York : Routledge, 2000, 341 p.
 
+
 -   Les Blancs
 
 **BERNARDI Daniel (dir.)**. *Classic Hollywood, Classic Whiteness*. Minneapolis : University of Minnesota Press, 2001, 516 p.
@@ -806,6 +843,7 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 **BONDANELLA Peter**. *Hollywood Italians. Dagos, Palookas, Romeos, Wise Guys, and Sopranos*. New York : Continuum, 2004, 352 p.
 
 **DYER Richard**. *White*. Londres, New York : Routledge, 1997, 256 p.
+
 
 -   La question du double
 
@@ -817,15 +855,17 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 
 **STEVENSON Robert Louis**. *The Strange Case of Dr. Jekyll and Mr. Hyde*. Londres : Penguin, 2002, 88 p. (Penguin Classics)
 
+
 ##Super-héros
 
 **BUKATMAN Scott**. *Matters of Gravity. Special Effects and Supermen in the 20th Century*. Durham, Londres : Duke University Press, 2003, 279 p.
 
 **FOREST Claude (dir.)**. *Du héros aux super héros. Mutations Cinématographiques*. Théorème n°13, Paris : Presses de la Sorbonne Nouvelle, 2009, 275 p.
 
+
 -   Les comic books
 
-### Les comic books : généralités, histoire 
+#### Les comic books : généralités, histoire 
 
 **BARNES Brook, CIEPLY Michael**. A Supersized Custody Battle Over Marvel Superheroes \[ en ligne \]. New York Times. 21 mars 2010. Disponible sur :
 &lt;http://www.nytimes.com/2010/03/21/business/21marvel.html?ref=marvel-entertainment-inc&gt;
@@ -850,7 +890,8 @@ http://articles.cnn.com/2003-08-08/politics/recall.arnold\_1\_california-governo
 
 **WRIGHT Bradford W**. *Comic Book Nation, The Transformation of Youth Culture in America*. Baltimore, Londres : The Johns Hopkins University Press, 2001, 336 p.
 
-### Adaptation des comic books au cinéma 
+
+#### Adaptation des comic books au cinéma 
 
 **CIMENT Gilles (dir.)**. *Cinéma et bande dessinée*. Courbevoie : CinémAction ; Condé-sur-Noireau : Corlet-Télérama, 1990, 280 p.
 
@@ -883,6 +924,7 @@ Jefferson, Londres : McFarland and Company. 2007, p. 5-32.
 &lt;http://www.nytimes.com/2007/06/18/business/media/18marvel.html?\_r=1&ref=marvel-entertainment-inc&gt;
 (consulté le 01.12.2010).
 
+
 -   Les super-héros : typologie
 
 **CHABON Michael**. Secret Skin, an essay in unitard theory \[ en ligne \]. The New Yorker. 10 mars 2008. Disponible sur : &lt; http://www.newyorker.com/reporting/2008/03/10/080310fa\_fact\_chabon&gt;
@@ -892,6 +934,7 @@ Jefferson, Londres : McFarland and Company. 2007, p. 5-32.
 
 "Unmasked Seattle Superhero Vows to Keep Fighting Crime" \[ en ligne \]. NBC News. 13 octobre 2011. Disponible sur : &lt;http://www.msnbc.msn.com/id/44891979/ns/us\_news-crime\_and\_courts/t/unmasked-seattle-superhero-vows-keep-fighting-crime/\#.UI6R8WllUgY&gt;
 (consulté le 29.10.12)
+
 
 ## Les super-héros dans les comic books 
 
@@ -935,6 +978,7 @@ Jefferson, Londres : McFarland and Company. 2007, p. 5-32.
 
 **WYNTER Kevin**. Of Depth and Surface. Notes on Watchmen and other (non)reflections on phenomenological film experience. *Cineaction*, 2009, n°77, p. 68-72.
 
+
 ## Les super-héros : ouvrages de fiction
 
 **BENDIS Brian Michael**. "Death of Spider-Man". *Ultimate Comics Spider-Man*, vol. 4, n°156-160, Marvel Enterprises, 2011, 120 p.
@@ -949,9 +993,10 @@ Jefferson, Londres : McFarland and Company. 2007, p. 5-32.
 
 **STERN Roger**. *Mort et vie de Superman*. Bruxelles : Lefrancq, 1996, 573 p. (traduction de l'américain par Stéphanie Benson et Pierre Efratas)
 
+
 -   Les super-héros : individualités
 
-### Superman
+#### Superman
 
 **ECO Umberto**. *De Superman au Surhomme*. Paris : Grasset, 1993, 217 p. (Traduction de l'italien par Myriem Bouzaher)
 
@@ -971,7 +1016,7 @@ Jefferson, Londres : McFarland and Company. 2007, p. 5-32.
 1992. Disponible sur : &lt; http://www.nytimes.com/1992/10/04/opinion/when-superman-gets-boring.html&gt;
 (consulté le 01. 02.2011).
 
-### Autres super-héros 
+#### Autres super-héros 
 
 **DEFALCO Tom**. *Hulk. L'encyclopédie du titan vert*. Paris : Semic, 2003, 127 p. (Traduction de l'anglais par Edmond Tourriol)
 
@@ -986,7 +1031,7 @@ Company. 2007, p. 70-84.
 
 **USUDA Kohei**. Movements and Rhythms. On Sam Raimi's *Spider-Man 3*. *Cineaction*, hiver 2008, n°75, p. 70-71.
 
-### Le cas Incassable
+#### Le cas Incassable
 
 **BURDEAU Emmanuel**. Mon père ce héros. *Cahiers du Cinéma*, janvier 2001, n°553, p. 82-83.
 
