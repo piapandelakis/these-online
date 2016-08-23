@@ -42,7 +42,7 @@
 
 *Who Wants to Be a Superhero?*, création : Scott Satin, production : POW! Entertainment ; Nash Entertainment, États-Unis, diffusée du 27 juillet 2006 au 6 septembre 2007 sur Sci-Fi Channel.
 
-###*Serials *
+###*SERIALS *
 
 *The Hazards of Helen*, J. Gunnis Davis ; J. P. McGowan, ; Robert G. Vignola, 1914-1917, États-Unis, 119 épisodes, 1428 min.
 
