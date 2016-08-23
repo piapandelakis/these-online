@@ -469,8 +469,6 @@ Malcolm Crowe, David Dunn, Graham Hess et Cleveland Heep en savent moins que les
 
 ___
 
-[^485]: Le héros d'Action n'a jamais en effet l'expertise d'un seul domaine : Rambo voit ainsi ses qualités listées, puisqu'il est dit qu'il est "*qualifié en armes légères, soins médicaux, pilotage d'hélicoptère et dans la pratique des langues. 59 assassinats confirmés. Deux étoiles d'argent, quatre de bronze, quatre* Purple Hearts" ("*light weapon, medic, helicopter and language qualified. 59 confirmed kills. Two Silver Stars, four Bronze, four Purple Hearts*").
-
 [^486]: "*le* *film d'action a évolué selon une courbe d'excès. Et le fait qu'il n'y ait aucune définition stylistique, idéologique ou narrative du film d'action met en évidence le fait que l'association de l'excès au genre est la seule constante*" ("*the action film has evolved along a trajectory of excess. And the fact there is no single stylistic, ideological, or even narrative definition of the action film highlights that the genre's commitment to excess is its only constant*") in LICHTENFELD Eric. op. cit., p. 335.
 
 [^487]: Cette familiarité est double : c'est d'abord celle d'un corps banal, tenant d'un vécu de *common man*. Cet aspect était charrié par Bruce Willis au début de la franchise *Die Hard* ; la récurrence du personnage tend à l'amoindrir. Cette récurrence génère justement le second type de familiarité : McClane nous est familier comme personnage sériel, dans la mesure où sa réapparition génère un horizon d'attente bien précis, formé par notre fréquentation des épisodes précédents.
