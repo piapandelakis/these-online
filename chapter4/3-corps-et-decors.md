@@ -72,7 +72,7 @@ trajectoire comme contrainte surimposée au corps du héros. La scène culmine l
 ![fig. 128.1](https://photos-2.dropbox.com/t/2/AACDozyNLidVtiToAymycdNOtPNCumiLJAs5-00DnUxAkA/12/38888477/png/32x32/1/_/1/2/DVD_VIDEO-353.png/EJi00h0YifsTIAIoAg/bpGHXHnp1tTIvcuhho5e8yVxMaXO9YxM4FSUa1g_sfU?size=2048x1536&size_mode=3)
 ![fig. 128.2](https://photos-1.dropbox.com/t/2/AAC-GS5lC2vBA-tvNLcRVFqCsForTCnbmvGMRDFN8RCpnw/12/38888477/png/32x32/1/_/1/2/DVD_VIDEO-354.png/EJi00h0YivsTIAIoAg/By7X3-OrGUe3BRmZIeT_T9S1CJtHfa8C_MX8tV-9BNU?size=2048x1536&size_mode=3)
 
-######fig. 128 : Spider-Man utilise son corps pour pallier aux manquements du décor dans *Spider-Man 2*. Le découpage de cette scène est exposée de manière détaillée dans les annexes.
+######fig. 128 : Spider-Man utilise son corps pour pallier aux manquements du décor dans *Spider-Man 2*. Le découpage de cette scène est exposée de manière détaillée dans les [annexes](../annexes.md).
 
 Pour sauver les passagers de la rame, Spiderman se place à l'avant du train, et tente de tisser une toile pour ralentir le véhicule. À la manière d'une proue crucifiée, son corps absorbe la vitesse du train pour le ralentir[^887]. Cet exploit reprend un motif récurrent dans les films de super-héros : déjà, dans *Superman*, le super-héros utilisait son corps allongé pour joindre les rails d'une voie ferrée endommagée (*fig. 129*).
 
