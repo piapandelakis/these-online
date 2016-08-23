@@ -1,6 +1,6 @@
-"*Could Batman do his job if he were to get a call from his wife reminding him to bring home a quart of milk?*[^737]" - Danny Fingeroth *Superman on the Couch*, 2004*.*
+>>"*Could Batman do his job if he were to get a call from his wife reminding him to bring home a quart of milk?*[^737]" - Danny Fingeroth *Superman on the Couch*, 2004*.*
 
-"*man is not truly one, but truly two*[^738]" - Robert Louis Stevenson. *The Strange Case of Dr Jekyll and Mr Hyde*.
+>>"*man is not truly one, but truly two*[^738]" - Robert Louis Stevenson. *The Strange Case of Dr Jekyll and Mr Hyde*.
 
 
 #Introduction : du comic book au film à grand spectacle
