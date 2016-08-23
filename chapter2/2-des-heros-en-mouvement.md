@@ -93,7 +93,7 @@ Dans *Die Hard*, les cages d'ascenseurs et autres conduits d'aération se substi
 ######fig. 23 : Formes de l'effet-tube.
 ######fig. 23.1 : Bruce Willis prisonnier d'une cage d'ascenseur dans* Die Hard*.
 ######fig. 23.2 : Le corps de l'acteur est de nouveau comprimé dans* Die Hard 2*.
-######fig. 23.3 et 23.4 : La scène du parachute dans* Die Hard 2*, une nouvelle occurence d'espace sans issue.*
+######fig. 23.3 et 23.4 : La scène du parachute dans* Die Hard 2*, une nouvelle occurence d'espace sans issue.
 
 Tandis que les corps bodybuildés des films d'Action semblent excédés par leur propre énergie au point d'être obligés à la dépense, le corps de McClane paraît subir un phénomène inverse, où l'énergie se replie en dedans. Alors même que la dénomination du genre semblait garantir la
 fonctionnalité du corps, l'héroïsme de McClane se fonde sur un dysfonctionnement physique. Là où Rambo courait, sautait, McClane rampe, se débat dans un milieu, qui, en dépit de sa taille réelle, semble toujours être trop petit (*fig. 23*).
