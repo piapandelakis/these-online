@@ -4,80 +4,80 @@
 
 -   Théorie
 
-BARTHES Roland. "La Chambre claire". In : *Œuvres complètes V*, *1977-80*. Paris : Seuil, 2002, p. 791-892.
+**BARTHES Roland**. "La Chambre claire". In : *Œuvres complètes V*, *1977-80*. Paris : Seuil, 2002, p. 791-892.
 
-CAVELL Stanley. *Philosophy: The Day After Tomorrow*. Cambridge : Belknap Press of Harvard University Press, 2005, 302 p.
+**CAVELL Stanley**. *Philosophy: The Day After Tomorrow*. Cambridge : Belknap Press of Harvard University Press, 2005, 302 p.
 
-FOUCAULT Michel. *Les mots et les choses : une archéologie des sciences humaines*. Paris : Gallimard, 1966, 400 p.
+**FOUCAULT Michel**. *Les mots et les choses : une archéologie des sciences humaines*. Paris : Gallimard, 1966, 400 p.
 
-FRYE Northrop. *Anatomie de la critique*. Paris : Gallimard, 1969, 454 p. (Traduction de l'anglais par Guy Durand)
+**FRYE Northrop**. *Anatomie de la critique*. Paris : Gallimard, 1969, 454 p. (Traduction de l'anglais par Guy Durand)
 
 -   Le cinéma : généralités, méthodologies
 
-ARNAUD Philippe. *Les paupières du visible*. Crisnée : Yellow Now, 2001, 246 p. (Côté Cinéma)
+**ARNAUD Philippe**. *Les paupières du visible*. Crisnée : Yellow Now, 2001, 246 p. (Côté Cinéma)
 
-BAZIN André. *Qu'est-ce que le cinéma ?* 14<sup>e</sup> éd. Paris : Éditions du Cerf, 2002, 372 p.
+**BAZIN André**. *Qu'est-ce que le cinéma ?* 14<sup>e</sup> éd. Paris : Éditions du Cerf, 2002, 372 p.
 
-BONITZER Pascal. *Le champ aveugle. Essai sur le réalisme au cinéma*. 2<sup>e</sup> éd. Paris : Cahiers du Cinéma, 1999, 109 p.
+**BONITZER Pascal**. *Le champ aveugle. Essai sur le réalisme au cinéma*. 2<sup>e</sup> éd. Paris : Cahiers du Cinéma, 1999, 109 p.
 
-BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5<sup>e</sup> éd. New York, Oxford : Oxford University Press, 1999, 861 p.
+**BRAUDY Leo, COHEN Marshall (dir.)**. *Film Theory and Criticism. Introductory Readings*. 5<sup>e</sup> éd. New York, Oxford : Oxford University Press, 1999, 861 p.
 
-CLAIR René. *Cinéma d’hier, cinéma d’aujourd’hui*. Paris : Gallimard, 1970, 372 p.
+**CLAIR René**. *Cinéma d’hier, cinéma d’aujourd’hui*. Paris : Gallimard, 1970, 372 p.
 
-COLLINS Jim, PREACHER COLLINS Ava, RADNER Hillary. *Film Theory Goes to the Movies*. New York, Londres : Routledge, 1993, 297 p.
+**COLLINS Jim, PREACHER COLLINS Ava, RADNER Hillary**. *Film Theory Goes to the Movies*. New York, Londres : Routledge, 1993, 297 p.
 
-DANEY Serge. *Ciné Journal, Volume I. 1981-1982*. Paris : Cahiers du Cinéma, 1998, 222 p. (Petite bibliothèque des Cahiers du Cinéma)
+**DANEY Serge**. *Ciné Journal, Volume I. 1981-1982*. Paris : Cahiers du Cinéma, 1998, 222 p. (Petite bibliothèque des Cahiers du Cinéma)
 
-DANEY Serge. *Devant la recrudescence des vols de sacs à mains*. Lyon : Aléas Éditeur, 1991, 270 p.
+**DANEY Serge**. *Devant la recrudescence des vols de sacs à mains*. Lyon : Aléas Éditeur, 1991, 270 p.
 
-DELEUZE Gilles. *Cinéma : I. L'image mouvement*. Paris : Éditions de Minuit, 1983, 298 p.
+**DELEUZE Gilles**. *Cinéma : I. L'image mouvement*. Paris : Éditions de Minuit, 1983, 298 p.
 
-GRANT Barry Keith (dir.). *Britton on Film. The Complete Film Criticism of Andrew Britton*. Detroit : Wayne State University Press, 2009, 533 p.
+**GRANT Barry Keith (dir.)**. *Britton on Film. The Complete Film Criticism of Andrew Britton*. Detroit : Wayne State University Press, 2009, 533 p.
 
-KRACAUER Siegfried. "The Establishment of Physical Existence". In : BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5<sup>e</sup> éd. New York, Oxford : Oxford University Press, 1999, p. 293-303.
+**KRACAUER Siegfried**. "The Establishment of Physical Existence". In : BRAUDY Leo, COHEN Marshall (dir.). *Film Theory and Criticism. Introductory Readings*. 5<sup>e</sup> éd. New York, Oxford : Oxford University Press, 1999, p. 293-303.
 
-MITRY Jean. *Dictionnaire du cinéma*. Paris : Larousse, 1963, 328 p.
+**MITRY Jean**. *Dictionnaire du cinéma*. Paris : Larousse, 1963, 328 p.
 
-PALMER Barton. R. *The Cinematic Text. Methods and Approaches*. New York : AMS Press, 1989, 423 p.
+**PALMER Barton**. R. *The Cinematic Text. Methods and Approaches*. New York : AMS Press, 1989, 423 p.
 
-TURNER Graeme (dir.). *The Film Cultures Reader*. Londres, New York : Routledge, 2002, 524 p.
+**TURNER Graeme (dir.)**. *The Film Cultures Reader*. Londres, New York : Routledge, 2002, 524 p.
 
 -   Histoire des États-Unis
 
-ANGUS Ian, JHALLY Sut (dir.). *Cultural Politics in Contemporary America*. New York, Londres : Routledge, 1989, 388 p.
+**ANGUS Ian, JHALLY Sut (dir.)**. *Cultural Politics in Contemporary America*. New York, Londres : Routledge, 1989, 388 p.
 
-BAILEY Beth, FARBER David. *America in the seventies*. Lawrence : University Press of Kansas, 2004, 246 p.
+**BAILEY Beth, FARBER David**. *America in the seventies*. Lawrence : University Press of Kansas, 2004, 246 p.
 
-JOHNSON Haynes. *Sleepwalking through History, America in the Reagan Years*. 2<sup>e</sup> éd. Londres, New York : W. W. Norton, 2003, 525 p.
+**JOHNSON Haynes**. *Sleepwalking through History, America in the Reagan Years*. 2<sup>e</sup> éd. Londres, New York : W. W. Norton, 2003, 525 p.
 
 "This Aggression Will Not Stand" \[ en ligne \]. New York Times. 1991. Disponible sur : &lt;
 http://www.nytimes.com/1991/03/01/opinion/this-aggression-will-not-stand.html?pagewanted=2src=pm&gt; (consulté le 13.07.2012).
 
 -   Clichés, stéréotypes, mythes
 
-AMOSSY Ruth. *Les idées reçues : Sémiologie du stéréotype*. Paris : Nathan, 1991, 215 p.
+**AMOSSY Ruth**. *Les idées reçues : Sémiologie du stéréotype*. Paris : Nathan, 1991, 215 p.
 
-BARTHES Roland. *Mythologies*. Paris : Seuil, 1957, 233 p. (Points)
+**BARTHES Roland**. *Mythologies*. Paris : Seuil, 1957, 233 p. (Points)
 
-DYER Richard. *Pastiche*. Oxon : Routledge, 2007, 222 p.
+**DYER Richard**. *Pastiche*. Oxon : Routledge, 2007, 222 p.
 
-QUENEL Alain. *Les mythes modernes : actualité de la culture générale*. Paris : PUF, 2003, 138 p.
+**QUENEL Alain**. *Les mythes modernes : actualité de la culture générale*. Paris : PUF, 2003, 138 p.
 
-ROGER Philippe. *L'ennemi américain*. Paris : Seuil, 2002, 601 p.
+**ROGER Philippe**. *L'ennemi américain*. Paris : Seuil, 2002, 601 p.
 
-VERNANT Jean-Pierre. *L'univers, les dieux, les hommes : Récits grecs des origines*. Paris : Seuil, 1999, 244 p.
+**VERNANT Jean-Pierre**. *L'univers, les dieux, les hommes : Récits grecs des origines*. Paris : Seuil, 1999, 244 p.
 
 -   Dictionnaires et ouvrages généraux
 
-BRUNET François, McCAVANA Declan. *Dictionnaire bilingue de l'argot d'aujourd'hui*. 2<sup>e</sup> éd. Paris : Pocket, 1996, 688 p. (Langues pour tous)
+**BRUNET François, McCAVANA Declan**. *Dictionnaire bilingue de l'argot d'aujourd'hui*. 2<sup>e</sup> éd. Paris : Pocket, 1996, 688 p. (Langues pour tous)
 
-HARPER Douglas. *The Online Etymology Dictionary* \[ en ligne \] 2001-2012. Disponible sur : &lt;http://www.etymonline.com&gt;
+**HARPER Douglas**. *The Online Etymology Dictionary* \[ en ligne \] 2001-2012. Disponible sur : &lt;http://www.etymonline.com&gt;
 
-SIMPSON J. A., WEINER E. S. C. *The English Oxford Dictionary*. 2<sup>e</sup> éd. Oxford : Clarendon Press, 1991, 20 volumes.
+**SIMPSON J. A., WEINER E. S. C**. *The English Oxford Dictionary*. 2<sup>e</sup> éd. Oxford : Clarendon Press, 1991, 20 volumes.
 
-SPEARS Richard A. *McGraw-Hill's Essential American Slang*. Chicago : McGraw-Hill, 2008, 255 p.
+**SPEARS Richard A**. *McGraw-Hill's Essential American Slang*. Chicago : McGraw-Hill, 2008, 255 p.
 
-REY-DEBOVE Josette, REY Alain (dir.). *Le nouveau Petit Robert : dictionnaire alphabétique et analogique de la langue française*. Paris : Dictionnaires Le Robert, 2000, 2841 p. 
+**REY-DEBOVE Josette, REY Alain (dir.)**. *Le nouveau Petit Robert : dictionnaire alphabétique et analogique de la langue française*. Paris : Dictionnaires Le Robert, 2000, 2841 p. 
 
 *Cambridge Dictionary Online*. \[ en ligne \] 2012. Disponible sur : &lt;http://dictionary.cambridge.org/&gt;
 
@@ -97,114 +97,114 @@ sur : &lt;http://www.lerobert.com/&gt;
 
 -   Hollywood
 
-BERTHOMIEU Pierre. *Le cinéma Hollywoodien. Le temps du renouveau*. Paris : Armand Colin, 2005, 127 p.
+**BERTHOMIEU Pierre**. *Le cinéma Hollywoodien. Le temps du renouveau*. Paris : Armand Colin, 2005, 127 p.
 
-BOURGET Jean-Loup. *Hollywood, la norme et la marge*. Paris : Armand Colin Cinéma, 2005, 315 p.
+**BOURGET Jean-Loup**. *Hollywood, la norme et la marge*. Paris : Armand Colin Cinéma, 2005, 315 p.
 
-DUBOIS Régis. *Hollywood. Cinéma et idéologie*. Cabri : Éditions Sulliver, 2008, 171 p.
+**DUBOIS Régis**. *Hollywood. Cinéma et idéologie*. Cabri : Éditions Sulliver, 2008, 171 p.
 
-DYER Richard. *Only Entertainment*. Londres, New York : Routledge, 1992, 178 p.
+**DYER Richard**. *Only Entertainment*. Londres, New York : Routledge, 1992, 178 p.
 
-WARSHOW Robert. *The Immediate Experience, Movies, Comics, Theatre and Other Aspecst of Popular Culture*. Cambridge, Londres : Harvard University Press, 2001, 302 p.
+**WARSHOW Robert**. *The Immediate Experience, Movies, Comics, Theatre and Other Aspecst of Popular Culture*. Cambridge, Londres : Harvard University Press, 2001, 302 p.
 
-WOOD Michael. *America in the Movies: or, "Santa Maria, It had slipped my mind".* New York : Columbia University Press, 1975, 206 p.
+**WOOD Michael**. *America in the Movies: or, "Santa Maria, It had slipped my mind".* New York : Columbia University Press, 1975, 206 p.
 
 -   Périodes
 
 ### Cinéma des premiers temps 
 
-ELSAESSER Thomas (dir.). *Early Cinema: Space, Frame, Narrative*. Londres : BFI Publishing, 1990, 424 p.
+**ELSAESSER Thomas (dir.)**. *Early Cinema: Space, Frame, Narrative*. Londres : BFI Publishing, 1990, 424 p.
 
-GUNNING Tom. "The Cinema of Attractions: Early Film, Its Spectator and the Avant-Garde". In : ELSAESSER Thomas (dir.). *Early Cinema: Space, Frame, Narrative*. Londres : BFI Publishing, 1990, p. 56-62.
+**GUNNING Tom**. "The Cinema of Attractions: Early Film, Its Spectator and the Avant-Garde". In : ELSAESSER Thomas (dir.). *Early Cinema: Space, Frame, Narrative*. Londres : BFI Publishing, 1990, p. 56-62.
 
-LINDSAY Vachel. *De la caverne à la pyramide (Ecrits sur le cinéma 1914-1925)*. 2<sup>e</sup> éd. Paris : Klincksieck, 2012, 344 p. (Traduction de l'américain par Marc Chénetier)
+**LINDSAY Vachel**. *De la caverne à la pyramide (Ecrits sur le cinéma 1914-1925)*. 2<sup>e</sup> éd. Paris : Klincksieck, 2012, 344 p. (Traduction de l'américain par Marc Chénetier)
 
-SINGER Ben. " 'Child of Commerce! Bastard of Art!'. Early Film Melodrama". In : TASKER Yvonne (dir.), *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 52-70.
+**SINGER Ben**. " 'Child of Commerce! Bastard of Art!'. Early Film Melodrama". In : TASKER Yvonne (dir.), *Action and Adventure Cinema*. Londres, New York : Routledge, 2004, p. 52-70.
 
 ### Années 70 
 
-BISKIND Peter. Easy Riders, Raging Bulls: How the Sex-Drugs-and-Rock’n’Roll Generation Saved Hollywood. New York : Simon & Schuster, 1998, 506 p.
+**BISKIND Peter**. Easy Riders, Raging Bulls: How the Sex-Drugs-and-Rock’n’Roll Generation Saved Hollywood. New York : Simon & Schuster, 1998, 506 p.
 
-ELSAESSER Thomas, HORWARTH Alexander, KING Noel (dir.). *The Last Great American Picture Show: New Hollywood Cinema in the 1970s*. Amsterdam : Amsterdam University Press, 2004, 391 p.
+**ELSAESSER Thomas, HORWARTH Alexander, KING Noel (dir.)**. *The Last Great American Picture Show: New Hollywood Cinema in the 1970s*. Amsterdam : Amsterdam University Press, 2004, 391 p.
 
-SCHATZ Thomas. "The New Hollywood". In : STRINGER Julian. *Movie Blockbusters*. New York, Londres : Routledge, 2003, p. 15-44.
+**SCHATZ Thomas**. "The New Hollywood". In : STRINGER Julian. *Movie Blockbusters*. New York, Londres : Routledge, 2003, p. 15-44.
 
-THORET Jean-Baptiste. *Le cinéma américain des années 70*. Paris : Cahiers du Cinéma, l'Étoile, 2006, 395 p.
+**THORET Jean-Baptiste**. *Le cinéma américain des années 70*. Paris : Cahiers du Cinéma, l'Étoile, 2006, 395 p.
 
 ### Années 80 - Années Reagan 
 
-BRITTON Andrew. "Blissing Out: The Politics of Reaganite Entertainment (1986)". In : GRANT Barry Keith (dir.). *Britton on Film. The Complete Film Criticism of Andrew Britton*. Detroit : Wayne State University Press, 2009, p. 97-154.
+**BRITTON Andrew**. "Blissing Out: The Politics of Reaganite Entertainment (1986)". In : GRANT Barry Keith (dir.). *Britton on Film. The Complete Film Criticism of Andrew Britton*. Detroit : Wayne State University Press, 2009, p. 97-154.
 
-CIEUTAT Michel. Préface. In : GIMELLO-MESPLOMB Frédéric (dir.). *Le cinéma des années Reagan, un modèle hollywoodien ?.* Paris : Nouveau Monde Éditions, 2007, p. 9-12.
+**CIEUTAT Michel**. Préface. In : GIMELLO-MESPLOMB Frédéric (dir.). *Le cinéma des années Reagan, un modèle hollywoodien ?.* Paris : Nouveau Monde Éditions, 2007, p. 9-12.
 
-GIMELLO-MESPLOMB Frédéric (dir.). *Le cinéma des années Reagan, un modèle hollywoodien ?* Paris : Nouveau Monde Éditions, 2007, 366 p.
+**GIMELLO-MESPLOMB Frédéric (dir.)**. *Le cinéma des années Reagan, un modèle hollywoodien ?* Paris : Nouveau Monde Éditions, 2007, 366 p.
 
-WOOD Robin. *Hollywood, from Vietnam to Reagan, and Beyond*. New York : Columbia University Press, 2003, 363 p.
+**WOOD Robin**. *Hollywood, from Vietnam to Reagan, and Beyond*. New York : Columbia University Press, 2003, 363 p.
 
 ### Autres périodes 
 
-HOLMLUND Christine. *American Cinema of the 1990s. Themes and Variations*. New Brunswick, Londres : Rutgers University Press, 2008, 288 p.
+**HOLMLUND Christine**. *American Cinema of the 1990s. Themes and Variations*. New Brunswick, Londres : Rutgers University Press, 2008, 288 p.
 
-ISABEL Thibaut. *La fin de siècle du cinéma américain (1981-2000), Une évaluation psychologique et morale des mentalités psychologiques*. Lille : La Méduse, 2006, 541 p.
+**ISABEL Thibaut**. *La fin de siècle du cinéma américain (1981-2000), Une évaluation psychologique et morale des mentalités psychologiques*. Lille : La Méduse, 2006, 541 p.
 
-NEALE Steve, SMITH Murray. *Contemporary Hollywood Cinema*. Londres, New York : Routledge, 1998, 338 p.
+**NEALE Steve, SMITH Murray**. *Contemporary Hollywood Cinema*. Londres, New York : Routledge, 1998, 338 p.
 
-POLAN Dana. *Power & Paranoïa*. New York : Columbia University Press, 1986, 336 p.
+**POLAN Dana**. *Power & Paranoïa*. New York : Columbia University Press, 1986, 336 p.
 
-SIMON Jacqueline. *La fêlure dans le cinéma américain dans les années 40 et 50*. Paris, Milan, Barcelone : Masson, 1989, 236 p.
+**SIMON Jacqueline**. *La fêlure dans le cinéma américain dans les années 40 et 50*. Paris, Milan, Barcelone : Masson, 1989, 236 p.
 
 -   Esthétique
 
-AMIEL Vincent, COUTÉ Pascal. *Formes et obsessions du cinéma américain contemporain*. Paris : Klincksieck-Études, 2003, 187 p.
+**AMIEL Vincent, COUTÉ Pascal**. *Formes et obsessions du cinéma américain contemporain*. Paris : Klincksieck-Études, 2003, 187 p.
 
-BORDWELL David. *The Way Hollywood Tells It*. Los Angeles, Londres : University of California Press, 2006, 298 p.
+**BORDWELL David**. *The Way Hollywood Tells It*. Los Angeles, Londres : University of California Press, 2006, 298 p.
 
-DIXON Wheeler Winston. *Visions of the Apocalypse. Spectacle of Destruction in American Cinema*. Londres, New York : Wallflower Press, 2003, 169 p.
+**DIXON Wheeler Winston**. *Visions of the Apocalypse. Spectacle of Destruction in American Cinema*. Londres, New York : Wallflower Press, 2003, 169 p.
 
-FEVRY Sébastien. *La mise en abyme filmique, Essai de typologie*. Liège : Éditions du CEFAL, 2000, 175 p. (Grand Écran Petit Écran)
+**FEVRY Sébastien**. *La mise en abyme filmique, Essai de typologie*. Liège : Éditions du CEFAL, 2000, 175 p. (Grand Écran Petit Écran)
 
-JULLIER Laurent*. L'écran post-moderne, un cinéma de l'allusion et de l'artifice*. Paris : L'Harmattan, 1997, 203 p. (Champs Visuels)
+**JULLIER Laurent***. L'écran post-moderne, un cinéma de l'allusion et de l'artifice*. Paris : L'Harmattan, 1997, 203 p. (Champs Visuels)
 
-SCHEFER Jean-Louis. *L'homme ordinaire du cinéma*. Paris : Cahiers du
+**SCHEFER Jean-Louis**. *L'homme ordinaire du cinéma*. Paris : Cahiers du
 Cinéma, Gallimard, 1980, 232 p.
 
-SHARETT Christopher. *Mythologies of Violence in Post-Modern Cinema*. Detroit : Wayne State University Press, 1999, 453 p.
+**SHARETT Christopher**. *Mythologies of Violence in Post-Modern Cinema*. Detroit : Wayne State University Press, 1999, 453 p.
 
-VERNET Marc. *De l'invisible au cinéma. Figures de l'absence*. Paris : Cahiers du Cinéma, Éditions de l'Étoile, Seuil, 1988, 125 p.
+**VERNET Marc**. *De l'invisible au cinéma. Figures de l'absence*. Paris : Cahiers du Cinéma, Éditions de l'Étoile, Seuil, 1988, 125 p.
 
 -   Réalisateurs
 
-AZOURY Philippe, GOMES Miguel, KROHN Bill, PAÏNI Dominique, PÈRE Olivier. Cinq cinéastes pour les années 2000. *Cahiers du Cinéma*, janvier 2010, n°652, p. 18-21.
+**AZOURY Philippe, GOMES Miguel, KROHN Bill, PAÏNI Dominique, PÈRE Olivier**. Cinq cinéastes pour les années 2000. *Cahiers du Cinéma*, janvier 2010, n°652, p. 18-21.
 
-BERGAN Ronald. *The Coen Brothers*. Londres : Orion Media, 2000, 242 p.
+**BERGAN Ronald**. *The Coen Brothers*. Londres : Orion Media, 2000, 242 p.
 
-BRODE Douglas. *The Films of Steven Spielberg*. New York : Citadel Press, 1995, 253 p.
+**BRODE Douglas**. *The Films of Steven Spielberg*. New York : Citadel Press, 1995, 253 p.
 
-BUCKLAND Warren. Directed by Steven Spielberg. Poetics of the Contemporary Hollywood Blockbuster. New York : Continuum, 2006, 242 p.
+**BUCKLAND Warren**. Directed by Steven Spielberg. Poetics of the Contemporary Hollywood Blockbuster. New York : Continuum, 2006, 242 p.
 
-DEMPSEY Michael. John Ford: A Reassessment. *Film Quarterly*, été 1975, vol.28, n°4, p. 2-15.
+**DEMPSEY Michael**. John Ford: A Reassessment. *Film Quarterly*, été 1975, vol.28, n°4, p. 2-15.
 
-FRAYLING Christopher. *Il était une fois en Italie. Les westerns de Sergio Leone*. Paris : Éditions de la Martinière, 2005, 240 p. (Traduction de l'anglais par Ariel Marinie)
+**FRAYLING Christopher**. *Il était une fois en Italie. Les westerns de Sergio Leone*. Paris : Éditions de la Martinière, 2005, 240 p. (Traduction de l'anglais par Ariel Marinie)
 
-GIRGUS Sam B. *Films of Woody Allen*. Cambridge, New York : Cambridge University Press, 2002, 214 p.
+**GIRGUS Sam B**. *Films of Woody Allen*. Cambridge, New York : Cambridge University Press, 2002, 214 p.
 
-KROHN Bill. *Joe Dante et Les Gremlins d'Hollywood*. Paris : Éditions Cahiers du Cinéma - Festival International du film de Locarno, 1999, 255 p. (Traduction de l'américain par Marie-Pierre Duhamel-Müller, Bernard Einsenschitz, Serge Grünberg et Robert Louit)
+**KROHN Bill**. *Joe Dante et Les Gremlins d'Hollywood*. Paris : Éditions Cahiers du Cinéma - Festival International du film de Locarno, 1999, 255 p. (Traduction de l'américain par Marie-Pierre Duhamel-Müller, Bernard Einsenschitz, Serge Grünberg et Robert Louit)
 
-KÖRTE Peter, SEESSLEN Georg. *Joel & Ethan Coen*. Londres : Titan Books, 1999, 288 p. (Traduction de l'allemand par Rory Mulholland)
+**KÖRTE Peter, SEESSLEN Georg**. *Joel & Ethan Coen*. Londres : Titan Books, 1999, 288 p. (Traduction de l'allemand par Rory Mulholland)
 
 ##La notion de genre
 
 -   Études génériques
 
-ALTMAN Rick. "A Semantic/Syntactic Approach to Genre". In : GRANT Barry Keith (dir.), *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 26-40.
+**ALTMAN Rick**. "A Semantic/Syntactic Approach to Genre". In : GRANT Barry Keith (dir.), *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 26-40.
 
-BOURGET Jean-Loup. "Social Implications in the Hollywood Genres". In : GRANT Barry Keith (dir.), *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 50-58.
+**BOURGET Jean-Loup**. "Social Implications in the Hollywood Genres". In : GRANT Barry Keith (dir.), *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 50-58.
 
-BUSCOMBE Edward. "The Idea of Genre in American Cinema". In : GRANT Barry Keith (dir.), *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 11-25.
+**BUSCOMBE Edward**. "The Idea of Genre in American Cinema". In : GRANT Barry Keith (dir.), *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 11-25.
 
-DE CORDOVA Richard. "Genre and Performance ". In : GRANT Barry Keith (dir.), *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 129-139.
+**DE CORDOVA Richard**. "Genre and Performance ". In : GRANT Barry Keith (dir.), *Film Genre Reader II*. Austin : University of Texas Press, 1995, p. 129-139.
 
-DIXON Wheeler Winston (dir.). *Film Genre 2000: New Critical Essays*. Albany : State University of New York Press, 2000, 266 p.
+**DIXON Wheeler Winston (dir.)**. *Film Genre 2000: New Critical Essays*. Albany : State University of New York Press, 2000, 266 p.
 
 DYER Richard. "Action !". In : ARROYO José (dir.). *Action/Spectacle Cinema: A Sight and Sound Reader*. Londres : BFI Publishing, 2000, p. 17-21.
 
