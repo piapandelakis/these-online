@@ -66,9 +66,9 @@ jette d'abord d'une voiture lancée à grande vitesse. Soulevée par une force m
 ![fig. 71.1](https://photos-4.dropbox.com/t/2/AACckZZ7v35YhQa1s09nb0CywolRcSXTzpf_9A4C0Dvg8g/12/38888477/jpeg/32x32/1/_/1/2/superman-first-comic-action-comics-no-1.jpg/EJi00h0Y8PcTIAIoAg/1m_geHK0Gh2Mk-sbnWzo0wnWOh1DvbMWSu-AHkKawVY?dl=0&size=2048x1536&size_mode=3)
 ![fig. 71.2](https://photos-3.dropbox.com/t/2/AADqUO3sFwooN7h16hhez3CjxUcIKzrvqb7wqHDx64mqig/12/38888477/png/32x32/1/_/1/2/superman_returns_tof1.png/EJi00h0Y8PcTIAIoAg/PXe_uwjxiDLS8SvZKHB3OX6FjN5rUIk5MGKfTRL1kaE?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 71.1 : Ce geste est visible dans le premier numéro du comic consacré à Superman.*
+######fig. 71.1 : Ce geste est visible dans le premier numéro du comic consacré à Superman.
 
-######fig. 71.2 :* Dans Superman Returns *(2006), soit 73 ans plus tard, Brandon Routh reproduit un geste similaire. Photographie promotionnelle, © 2005 Warner Bros.*
+######fig. 71.2 :* Dans Superman Returns *(2006), soit 73 ans plus tard, Brandon Routh reproduit un geste similaire. Photographie promotionnelle, © 2005 Warner Bros.
 
 En devenant des super-héros en civil, les héros d'action effectuent les mêmes actions extraordinaires que leurs cousins Superman ou Spider-Man, à ceci près qu'ils se passent de la médiation directe du corps. Alors que la voiture dans les années 90 constituait le moyen de la trajectoire qui portait le héros sur sa lancée, ici le héros manipule ces véhicules comme s'ils étaient de simples bibelots. Cette magie ne passe donc plus par le corps, et par le geste : nous ne voyons pas *littéralement* le héros soulever une voiture. Cependant, il aura suffi d'un contact avec le héros pour que le véhicule, comme animé d'une force autonome, se
 soulève et accomplisse la volonté du personnage. Comme par contamination, les objets deviennent héroïques à leur tour dès lors que le héros les a touchés. L'exemple de *Live Free or Die Hard* complique un peu plus l'articulation entre le corps (tout puissant, central le
@@ -98,7 +98,7 @@ parole directement, mais répond à Farrell qui le remercie de lui avoir sauvé 
 ![fig. 72.5](https://photos-3.dropbox.com/t/2/AACqxCei0bkh4eDLmrAL8MC79jH_8NeuTduc_tvk13_xlQ/12/38888477/png/32x32/1/_/1/2/DH4_talk06.png/EJi00h0Y9_cTIAIoAg/cequi4wNHMkMQvemofn69Fccdr0PVTNKMSNVezz2a9w?dl=0&size=2048x1536&size_mode=3)
 ![fig. 72.6](https://photos-2.dropbox.com/t/2/AAAEnAXthb4q1KU4EWAjfHYZ6XOAa9rpeUcH3o9T0FHkKA/12/38888477/png/32x32/1/_/1/2/DH4_talk07.png/EJi00h0Y9_cTIAIoAg/XJmPJOb4TQeFrXhlY_t6HAExZBP-v0nIb2y78HfUytk?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 72 : Face à face entre le héros et sa potentielle relève : le statut de héros est réfléchi, critiqué, désavoué dans* Die Hard IV*.*
+######fig. 72 : Face à face entre le héros et sa potentielle relève : le statut de héros est réfléchi, critiqué, désavoué dans* Die Hard IV*.
 
 {version française}
 
@@ -221,7 +221,7 @@ héroïsme. La perception dans ce cas ne sera plus ce qui participe à la fabriq
 ![fig. 73.6](https://photos-5.dropbox.com/t/2/AAB43TxCd2O2O9-KwTmsYwfqmDDI6hA7tUKsFNm675jYnA/12/38888477/png/32x32/1/_/1/2/62_next_voyance08.png/EJi00h0Y_vcTIAIoAg/ETgvVS-xAtJsclwvb5ufHI16Ul6owlord0gbBOMHd_I?dl=0&size=2048x1536&size_mode=3)
 ![fig. 73.7](https://photos-3.dropbox.com/t/2/AAAIjfeVyLEqsG2fcOOPod555Q8WcFvGhlCGIXu9GWGoqg/12/38888477/png/32x32/1/_/1/2/62_next_voyance09.png/EJi00h0Y_vcTIAIoAg/XbH8UUf8QLk_M4M8lN75g5L5T-V9tEjZiJ0Q_mmykG8?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 73 : La voyance peut être signifiée par des dispositifs divers -*Next *les multiplie, et utilise dans le cas ci-dessus la lumière pour indiquer le changement d'état.*
+######fig. 73 : La voyance peut être signifiée par des dispositifs divers -*Next *les multiplie, et utilise dans le cas ci-dessus la lumière pour indiquer le changement d'état.
 
 *Minority Report, Paycheck*, et *Next* traitent tous trois de questions de divination, et donc de la connaissance du futur. Ce sont trois thrillers de science-fiction, où la possession d'une information va amorcer la traque de leurs héros, incarnés respectivement par Tom
 Cruise, Ben Affleck et Nicolas Cage, des acteurs qui se sont précédemment illustrés dans des films d'Action. Les futurs fantasmés par les deux premiers films donnent une importance considérable à la technologie, et plus précisément aux techniques de modélisation et de
@@ -279,12 +279,12 @@ une vision qui ne nécessite pas d'appareillage du corps, mais nous verrons que 
 ![fig. 74.6](https://photos-5.dropbox.com/t/2/AAD1VF993LbY5J1StY3QVWOt2R9dxURwRc4uqGuKfoP0vg/12/38888477/png/32x32/1/_/1/2/MINORITY_REPORT-46.png/EJi00h0YhfgTIAIoAg/t6rxBwmbjX5I_G6QH2gEIuTuqGkpgo-b4JzPa6VyIgI?dl=0&size=2048x1536&size_mode=3)
 
 
-######fig. 74 : Dans* Minority Report*, des Precogs livrent leurs visions pour empêcher des crimes qui n'ont pas encore été commis. Les images complexes issues de ces visions sont décodées par le détective Anderton, interprété par Tom Cruise.*
+######fig. 74 : Dans* Minority Report*, des Precogs livrent leurs visions pour empêcher des crimes qui n'ont pas encore été commis. Les images complexes issues de ces visions sont décodées par le détective Anderton, interprété par Tom Cruise.
 
 ![fig. 75.1](https://photos-4.dropbox.com/t/2/AAAJqGYHK56NS1VFGLIalbGOMtMWVjTLW-8VgbDKy0LprQ/12/38888477/png/32x32/1/_/1/2/MINORITY_REPORT-86.png/EJi00h0Yh_gTIAIoAg/iCmd2BjyMgvCCH3DNQrfjj1n4E8H2wCtaAMF_-cXEgs?dl=0&size=2048x1536&size_mode=3)
 ![fig. 75.2](https://photos-4.dropbox.com/t/2/AADHvvWMdweEXnrRAFfB7cN-MBjBZc75OhQ_nWyJKZju8Q/12/38888477/png/32x32/1/_/1/2/MINORITY_REPORT-97.png/EJi00h0Yh_gTIAIoAg/ImawRZA92lgWfNPgVmEaYrGGSMq04Qsg0tF4QryO1tQ?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 75 : Anderton retrouve ses propres visions le soir venu, à travers les images tridimensionnelles, mais insaisissables, de son fils disparu.*
+######fig. 75 : Anderton retrouve ses propres visions le soir venu, à travers les images tridimensionnelles, mais insaisissables, de son fils disparu.
 
 En effet, s'il y a vision, c'est par opposition à un aveuglement préalable. Les héros voient moins qu'ils n'apprennent *à cesser d'être* aveuglés - car eux aussi "veulent voir". Dans *Minority Report*, le traitement du regard s'effectue par le biais de nombreuses références mythologiques : les trois precogs renvoient clairement aux moires de la mythologie grecque. Plus généralement, ce thème de la vision obsède le film, de façon parfois allusive, mais jamais complétement anecdotique. Anderton achète sa drogue auprès d'un vagabond aux airs de prophète, qui lui rappelle : "*Au pays des aveugles, le borgne est roi*[^521]". Un plan fait suite, montrant son visage rendu borgne, par le truchement d'une ombre qui scinde son visage. Le thème s'exprime ainsi autant textuellement que visuellement. Le mari trompé sur lequel s'ouvre le film introduit ce thème de l'aveuglement en parlant de ses lunettes ("*Tu sais que je ne vois rien sans elles*[^522]", *fig.76*).
 
@@ -308,7 +308,7 @@ dernière scène d'action, Johnson se retrouve face au méchant, selon la formul
 ![fig. 77.4](https://photos-3.dropbox.com/t/2/AAAbKmeJKHlovgg3v7HXgcvQgj04tvgOgJtOZxUWky-y3g/12/38888477/png/32x32/1/_/1/2/65_next_dedouble06.png/EJi00h0YjfgTIAIoAg/RH06PI4wxif39yZqvN-9MNLkqXVaILp1OeR3KkhU57A?dl=0&size=2048x1536&size_mode=3)
 ![fig. 77.5](https://photos-1.dropbox.com/t/2/AABOw-uoMZW0Jzt2J6iFwWi9DGC1O9Z7oU5njyw7Gct49A/12/38888477/png/32x32/1/_/1/2/65_next_dedouble07.png/EJi00h0YjPgTIAIoAg/Dj9xdML7NAw80GdU6Nu4hwxe5oTfodm2eY1FSdMvfQc?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 77 : Nicolas Cage dans* Next *: être voyant revient à se fabriquer plusieurs corps de substitution.*
+######fig. 77 : Nicolas Cage dans* Next *: être voyant revient à se fabriquer plusieurs corps de substitution.
 
 En voyant, Johnson multiplie sa capacité à être actant : voir-prévoir revient à se fabriquer plusieurs corps (*fig. 77*). Il reste à déterminer si le héros, en général, en se faisant voyant, revient par ce moyen à l'action. En somme, la voyance est-elle une alternative à l'Action au sein du genre du même nom, ou simplement un détour formel ?
 
@@ -405,7 +405,7 @@ portes, soi-disant tracés par des bêtes sauvages, mais destinés à entretenir
 
 ![fig. 80.1](https://photos-4.dropbox.com/t/2/AAAHeiBbiSAyJr1XfVexXk2c_uYpuvTVC09M53HGtK40-w/12/38888477/png/32x32/1/_/1/2/SIGNES-verres.png/EJi00h0Ym_gTIAIoAg/CoKZfqynhaAejL96T_qL5rcSrX0T-cTBp7lIQAWuD0s?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 80.1 : Les verres d'eau laissés ça et là par Bo se révèlent salvateurs dans la scène finale de* Signs*.*
+######fig. 80.1 : Les verres d'eau laissés ça et là par Bo se révèlent salvateurs dans la scène finale de* Signs*.
 
 ![fig. 80.2](https://photos-6.dropbox.com/t/2/AADQLnGy7p5C_df1PlXm3z7k7FTRhsCaMTxvyObqtqxPqw/12/38888477/png/32x32/1/_/1/2/SIGNES-stars2.png/EJi00h0YnfgTIAIoAg/KMZWEJ5LPVmZo9UYuqkpZJ0Y7ofF-qYZXKxlyYByUyk?dl=0&size=2048x1536&size_mode=3)
 ![fig. 80.3](https://photos-4.dropbox.com/t/2/AAAXrNDRwp8R9nU_EXYaVUbLTZW5kFoNKF65VegYLfLfbg/12/38888477/png/32x32/1/_/1/2/SIGNES-stars3.png/EJi00h0YnfgTIAIoAg/op1adqd1jK3sl3UOxDuZyn7FK3wEk49oCz-lqLt446g?dl=0&size=2048x1536&size_mode=3)
@@ -457,7 +457,7 @@ le montage enregistre le mécanisme nécessaire à la voyance. Le film présente
 ![fig. 82.5](https://photos-1.dropbox.com/t/2/AADSIdJoGv9vbVfHvS0OFr6jtlocEVoluCTkhnn-uLtK8w/12/38888477/png/32x32/1/_/1/2/SHARDSD7_V2-6.png/EJi00h0YqfgTIAIoAg/Vo2yGVOjC3vjCRtlGHqZlM4Awpa_3K9er378ReV66XY?dl=0&size=2048x1536&size_mode=3)
 ![fig. 82.6](https://photos-4.dropbox.com/t/2/AAC_dNmRehtyruDgcVNJmnumJ7JZDAR6ZZZeT3WsRw47ew/12/38888477/png/32x32/1/_/1/2/SHARDSD7_V2-8.png/EJi00h0YqfgTIAIoAg/UGfh2sP9AOU43hgDKYbRVatDL0I0LfM-I9CdAib52i4?dl=0&size=2048x1536&size_mode=3)
 
-######fig. 82 : La caméra effectue une rotation à 180 degrés, et souligne ainsi la révélation qui frappe les personnages dans* Unbreakable*. Le découpage des différentes scènes est évoqué dans les annexes, p. 718-720.*
+######fig. 82 : La caméra effectue une rotation à 180 degrés, et souligne ainsi la révélation qui frappe les personnages dans* Unbreakable*. Le découpage des différentes scènes est évoqué dans les annexes, p. 718-720.
 
 À plusieurs reprises nous rencontrons le motif d'une lecture empêchée, à laquelle il faut redonner ses droits (*fig.82*) : au début du film, Joseph apprend l'accident du train dans lequel se trouvait son père alors qu'il regardait la télé assis "à l'envers", la nuque posée sur le bord du canapé. Les images de l'accident ferroviaire forcent un retour à l'endroit : physiquement, l'enfant se retourne pour mieux voir ce qu'il se passe (le plan reste alors fixe). La deuxième occurrence de retournement correspond à un flash-back. Elijah Price, enfant, vit reclus à cause de la maladie qui l'accable. Motivé par sa mère qui lui a promis un cadeau s'il sortait prendre l'air, il découvre un paquet sur un banc public. Il déchire le papier et découvre la couverture d'un comic book, à l'envers : il le retourne, la caméra accompagne cette fois le geste. Dans une troisième scène, Elijah rend visite à David sur le stade où ce dernier travaille comme agent de sécurité. Dunn lui confie ses doutes concernant un individu qui lui semble dangereux - Elijah se met alors en tête de poursuivre l'homme pour vérifier l'intuition de David. Ce faisant, Elijah tombe dans un escalier, se brise les os, et
 finit gisant sur le dos. Il voit l'homme s'échapper, à l'envers, et dans cette position obtient ce qu'il voulait, c'est-à-dire la confirmation que David possède des dons proches de la divination. La quatrième occurence concerne David Dunn lui-même, allongé sur son banc de musculation. Il voit Joseph à l'envers, qui le surplombe. Il lui demande combien de poids il a cette fois mis sur les haltères : l'annonce du nombre fait progresser David vers la connaissance de sa propre nature. Enfin, lors d'une cinquième scène, Elijah se rend dans un magasin de comics et répète le geste de son enfance, en retournant un fascicule posé sur ses genoux.
