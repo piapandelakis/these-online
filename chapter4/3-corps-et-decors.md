@@ -1,4 +1,4 @@
-<sup>e</sup>#3. Corps et décors
+#3. Corps et décors
 
 ##3.1 Le super-héros dans la ville
 
