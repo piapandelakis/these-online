@@ -1,4 +1,10 @@
 /* CSS for ebook */
+.filmcard{
+  padding: 10px;
+  background-color: yellow;
+
+}
+
 /* tooltip box */
 .anchorjs-link:after {
   display: inline-block;
